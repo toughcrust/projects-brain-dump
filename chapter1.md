@@ -18,7 +18,7 @@ ché père \| chez pair \| shéperd \| **sheper**
 
 =&gt; **Relire plus de VICE d'ailleurs** =&gt; à mettre dans une section "source de lectures / info cools" comme la chaîne youtube gestaz machin là ...
 
-Not leading the future of bullshit 
+Not leading the future of bullshit
 
 JDM: perché, cheaper, sheperd, shaper, ville en albanie &lt;3
 
@@ -142,7 +142,7 @@ Idées un peu random autour de \*\*musique / méditation / biofeedback\*\*:
 
 \* Auto-méditation: se faire une méditation guidée de sa propre voix: enfin construire un vrai dialogue avec soi \\(de la même manière qu'écrire aide à construire la pensée, accorder parole et corps\\)
 
-\* chants religieux + tambours chamaniques \\(ex Hildegard von Bingen \[[https://www.youtube.com/watch?v=Ei88J4lERbk\]\(https://www.youtube.com/watch?v=Ei88J4lERbk\](https://www.youtube.com/watch?v=Ei88J4lERbk]%28https://www.youtube.com/watch?v=Ei88J4lERbk%29%29 + [[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29]%28[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29\%29]%28[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29\)\]\([https://www.youtube.com/watch?v=BkzA\_u9smXU&t=311s\]\(https://www.youtube.com/watch?v=BkzA\_u9smXU&t=311s\)\)\)\)\](https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29%29%29\)\). Ajouter des sons binauraux par dessus qui sont modulés en fonction du rythme cardiaque et / ou de la musique elle même
+\* chants religieux + tambours chamaniques \\(ex Hildegard von Bingen \[[https://www.youtube.com/watch?v=Ei88J4lERbk\]\(https://www.youtube.com/watch?v=Ei88J4lERbk\](https://www.youtube.com/watch?v=Ei88J4lERbk]%28https://www.youtube.com/watch?v=Ei88J4lERbk%29%29 + [[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29]%28[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29]%28[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29%29]%28[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29%29\)\]\([https://www.youtube.com/watch?v=BkzA\_u9smXU&t=311s\]\(https://www.youtube.com/watch?v=BkzA\_u9smXU&t=311s\)\)\)\)\)\](https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29%29%29%29\)\). Ajouter des sons binauraux par dessus qui sont modulés en fonction du rythme cardiaque et / ou de la musique elle même
 
 \* un peu comme avant: mettre des percussions et moduler des sons binauraux sur des chants grégoriens. Utiliser l'API DOM audio: \[[https://developer.mozilla.org/fr/docs/Web/API/Web\\_Audio\\_API\]\(https://developer.mozilla.org/fr/docs/Web/API/Web\_Audio\_API\](https://developer.mozilla.org/fr/docs/Web/API/Web_Audio_API]%28https://developer.mozilla.org/fr/docs/Web/API/Web_Audio_API%29\). Avec \[[https://alemangui.github.io/pizzicato/\]\(https://alemangui.github.io/pizzicato/\](https://alemangui.github.io/pizzicato/]%28https://alemangui.github.io/pizzicato/%29\) ?
 
@@ -456,7 +456,29 @@ Assainissement d'eau ?
 
 idéalement: épluchures + coquilles d'oeufs \(+ urine ?, + argile ?\) =&gt; micro culture de transformation =&gt; KEYWORD: edible compost !
 
-dans les WIP: AJOUTER MONPOTO qui mis sur Trello !!
+### MONPOTO
+
+Idées essentielles:
+
+- 2 équipes d'au mois deux qui se connaissent
+
+- Faire réagir sur des situations marrantes,  communes, insolites ouvertes =&gt; faire parler sur ses potes
+
+- On distribue des cartes "Balance \(=dossier\)" et "Wingman" selon ce que les gens racontent
+
+- A l'issue d'un tour, chacun propose un date entre deux autres \(thème, lieux, temporalité tirées au sort ? ou laisser au choix ? probablment mieux de faire TRES simple. limite jouable sans jeu de carte\). Cette fois ci on gagne des points "Cupidon"
+
+
+
+En fait c'est cool si ça reste centré sur le "pote / wingman" et pas sur les gens à faire rencontrer. C'est l'intention, la générosité sur laquelle on veut se focaliser !
+
+Et donc à l'issue d'un tour on est content / on a gagné si on a un max de Dossiers / Wingman / Entremetteur.
+
+
+
+A la limite l'entremetteur devient subtilement celui qui est mis en valeur.
+
+
 
 * faire une section pour travailler sur mon orga:
 
