@@ -12,6 +12,16 @@ web / organisation / vie pratique / design
 
 ché père \| chez pair \| shéperd \| **sheper**
 
+![](/assets/sheper.png)
+
+^-- Inspis: années 90, VICE, skate
+
+=&gt; **Relire plus de VICE d'ailleurs** =&gt; à mettre dans une section "source de lectures / info cools" comme la chaîne youtube gestaz machin là ...
+
+Not leading the future of bullshit 
+
+JDM: perché, cheaper, sheperd, shaper, ville en albanie &lt;3
+
 **Nom et slogan**
 
 Nues & mues
@@ -132,7 +142,7 @@ Idées un peu random autour de \*\*musique / méditation / biofeedback\*\*:
 
 \* Auto-méditation: se faire une méditation guidée de sa propre voix: enfin construire un vrai dialogue avec soi \\(de la même manière qu'écrire aide à construire la pensée, accorder parole et corps\\)
 
-\* chants religieux + tambours chamaniques \\(ex Hildegard von Bingen \[[https://www.youtube.com/watch?v=Ei88J4lERbk\]\(https://www.youtube.com/watch?v=Ei88J4lERbk\](https://www.youtube.com/watch?v=Ei88J4lERbk]%28https://www.youtube.com/watch?v=Ei88J4lERbk%29%29 + [[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29\]%28[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29\\)\]\([https://www.youtube.com/watch?v=BkzA\_u9smXU&t=311s\]\(https://www.youtube.com/watch?v=BkzA\_u9smXU&t=311s\)\)\)\](https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29%29\)\). Ajouter des sons binauraux par dessus qui sont modulés en fonction du rythme cardiaque et / ou de la musique elle même
+\* chants religieux + tambours chamaniques \\(ex Hildegard von Bingen \[[https://www.youtube.com/watch?v=Ei88J4lERbk\]\(https://www.youtube.com/watch?v=Ei88J4lERbk\](https://www.youtube.com/watch?v=Ei88J4lERbk]%28https://www.youtube.com/watch?v=Ei88J4lERbk%29%29 + [[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29]%28[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29\%29]%28[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29\)\]\([https://www.youtube.com/watch?v=BkzA\_u9smXU&t=311s\]\(https://www.youtube.com/watch?v=BkzA\_u9smXU&t=311s\)\)\)\)\](https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29%29%29\)\). Ajouter des sons binauraux par dessus qui sont modulés en fonction du rythme cardiaque et / ou de la musique elle même
 
 \* un peu comme avant: mettre des percussions et moduler des sons binauraux sur des chants grégoriens. Utiliser l'API DOM audio: \[[https://developer.mozilla.org/fr/docs/Web/API/Web\\_Audio\\_API\]\(https://developer.mozilla.org/fr/docs/Web/API/Web\_Audio\_API\](https://developer.mozilla.org/fr/docs/Web/API/Web_Audio_API]%28https://developer.mozilla.org/fr/docs/Web/API/Web_Audio_API%29\). Avec \[[https://alemangui.github.io/pizzicato/\]\(https://alemangui.github.io/pizzicato/\](https://alemangui.github.io/pizzicato/]%28https://alemangui.github.io/pizzicato/%29\) ?
 
