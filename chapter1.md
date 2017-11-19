@@ -10,17 +10,17 @@ Sites web minimalistes design et pérennes via accessibilité
 
 web / organisation / vie pratique / design
 
+ché père \| chez pair \| shéperd \| **sheper**
+
 **Nom et slogan**
 
 Nues & mues
 
-Dissolving frontiers  
-Sublimated constraints  
-Unhoped for thrills
+Dissolution gurus  
+Sublimation seekers  
+Unhoped for warriors
 
 Nos désirs font des hordes
-
-
 
 Projet: "The terrestrial space station"
 
@@ -96,7 +96,7 @@ make eggshells bio available
 
 \* \[ \] un espèce de "perfect senses" IRL
 
-\* \[ \] intuitive singing \[[https://www.youtube.com/watch?v=C8CRedGz9qQ\]\(https://www.youtube.com/watch?v=C8CRedGz9qQ\](https://www.youtube.com/watch?v=C8CRedGz9qQ]%28https://www.youtube.com/watch?v=C8CRedGz9qQ\)\)
+\* \[ \] intuitive singing \[[https://www.youtube.com/watch?v=C8CRedGz9qQ\]\(https://www.youtube.com/watch?v=C8CRedGz9qQ\](https://www.youtube.com/watch?v=C8CRedGz9qQ]%28https://www.youtube.com/watch?v=C8CRedGz9qQ%29\)
 
 \* \[ \] a définir: trail / marche dans les pyrénées
 
@@ -104,27 +104,27 @@ make eggshells bio available
 
 \* \[ \] lucid dreaming
 
-\* \[ \] stage de survie: \[[https://www.cap-adrenaline.com/stage-survie-region-parisienne-P37901.html\\#bloc-avis\]\(https://www.cap-adrenaline.com/stage-survie-region-parisienne-P37901.html\#bloc-avis\](https://www.cap-adrenaline.com/stage-survie-region-parisienne-P37901.html\#bloc-avis]%28https://www.cap-adrenaline.com/stage-survie-region-parisienne-P37901.html#bloc-avis\)\) ou \[[http://www.gens-des-bois.org\]\(http://www.gens-des-bois.org\](http://www.gens-des-bois.org]%28http://www.gens-des-bois.org\)\)
+\* \[ \] stage de survie: \[[https://www.cap-adrenaline.com/stage-survie-region-parisienne-P37901.html\\#bloc-avis\]\(https://www.cap-adrenaline.com/stage-survie-region-parisienne-P37901.html\#bloc-avis\](https://www.cap-adrenaline.com/stage-survie-region-parisienne-P37901.html#bloc-avis]%28https://www.cap-adrenaline.com/stage-survie-region-parisienne-P37901.html#bloc-avis%29\) ou \[[http://www.gens-des-bois.org\]\(http://www.gens-des-bois.org\](http://www.gens-des-bois.org]%28http://www.gens-des-bois.org%29\)
 
-\* \[ \] séance ayahuasca \\(\[[https://www.facebook.com/ayahuascafrance/\]\(https://www.facebook.com/ayahuascafrance/\)\\](https://www.facebook.com/ayahuascafrance/]%28https://www.facebook.com/ayahuascafrance/%29\\)\)
+\* \[ \] séance ayahuasca \\(\[[https://www.facebook.com/ayahuascafrance/\]\(https://www.facebook.com/ayahuascafrance/\)\](https://www.facebook.com/ayahuascafrance/]%28https://www.facebook.com/ayahuascafrance/%29%29\)
 
-\* \[ \] tambours chamaniques: \[[http://www.neochamanisme.fr/index.php/agenda/cercle-de-tambours-fort-de-garches.html\]\(http://www.neochamanisme.fr/index.php/agenda/cercle-de-tambours-fort-de-garches.html\](http://www.neochamanisme.fr/index.php/agenda/cercle-de-tambours-fort-de-garches.html]%28http://www.neochamanisme.fr/index.php/agenda/cercle-de-tambours-fort-de-garches.html\)\)
+\* \[ \] tambours chamaniques: \[[http://www.neochamanisme.fr/index.php/agenda/cercle-de-tambours-fort-de-garches.html\]\(http://www.neochamanisme.fr/index.php/agenda/cercle-de-tambours-fort-de-garches.html\](http://www.neochamanisme.fr/index.php/agenda/cercle-de-tambours-fort-de-garches.html]%28http://www.neochamanisme.fr/index.php/agenda/cercle-de-tambours-fort-de-garches.html%29\)
 
-\* \[ \] tour à vélo: \[[http://www.tourdenatur.net/sites/tdn.in-berlin.de/files/tdn-flyer\\_2017\\_web.pdf\]\(http://www.tourdenatur.net/sites/tdn.in-berlin.de/files/tdn-flyer\_2017\_web.pdf\](http://www.tourdenatur.net/sites/tdn.in-berlin.de/files/tdn-flyer\_2017\_web.pdf]%28http://www.tourdenatur.net/sites/tdn.in-berlin.de/files/tdn-flyer_2017_web.pdf\)\)
+\* \[ \] tour à vélo: \[[http://www.tourdenatur.net/sites/tdn.in-berlin.de/files/tdn-flyer\\_2017\\_web.pdf\]\(http://www.tourdenatur.net/sites/tdn.in-berlin.de/files/tdn-flyer\_2017\_web.pdf\](http://www.tourdenatur.net/sites/tdn.in-berlin.de/files/tdn-flyer_2017_web.pdf]%28http://www.tourdenatur.net/sites/tdn.in-berlin.de/files/tdn-flyer_2017_web.pdf%29\)
 
 \* \[ \] stage permaculture
 
-\* \[ \] tour yvelines à vélo: \[[http://www.balade-yvelines.fr/Rando-a-velo/rando-velo-libre-accompagnee-yvelines/Rando-velo-Yvelines\]\(http://www.balade-yvelines.fr/Rando-a-velo/rando-velo-libre-accompagnee-yvelines/Rando-velo-Yvelines\](http://www.balade-yvelines.fr/Rando-a-velo/rando-velo-libre-accompagnee-yvelines/Rando-velo-Yvelines]%28http://www.balade-yvelines.fr/Rando-a-velo/rando-velo-libre-accompagnee-yvelines/Rando-velo-Yvelines\)\)
+\* \[ \] tour yvelines à vélo: \[[http://www.balade-yvelines.fr/Rando-a-velo/rando-velo-libre-accompagnee-yvelines/Rando-velo-Yvelines\]\(http://www.balade-yvelines.fr/Rando-a-velo/rando-velo-libre-accompagnee-yvelines/Rando-velo-Yvelines\](http://www.balade-yvelines.fr/Rando-a-velo/rando-velo-libre-accompagnee-yvelines/Rando-velo-Yvelines]%28http://www.balade-yvelines.fr/Rando-a-velo/rando-velo-libre-accompagnee-yvelines/Rando-velo-Yvelines%29\)
 
 \* \[ \] Expérimenter la peur que jeprouverait sans langage et bagage culturelle, l'effervescence des sens si j'étais un nouveau né, la vision différente du temps en étant aborigène...
 
-\* \[ \] respiration holotropique \[[http://holospi.blogspot.fr/p/ateliers-respiration-holotropique.html\]\(http://holospi.blogspot.fr/p/ateliers-respiration-holotropique.html\](http://holospi.blogspot.fr/p/ateliers-respiration-holotropique.html]%28http://holospi.blogspot.fr/p/ateliers-respiration-holotropique.html\)\)
+\* \[ \] respiration holotropique \[[http://holospi.blogspot.fr/p/ateliers-respiration-holotropique.html\]\(http://holospi.blogspot.fr/p/ateliers-respiration-holotropique.html\](http://holospi.blogspot.fr/p/ateliers-respiration-holotropique.html]%28http://holospi.blogspot.fr/p/ateliers-respiration-holotropique.html%29\)
 
 Serious business:
 
 \* ouvrir un compte à la nef ou autre
 
-\* habitat co-géré: \[[http://clip.ouvaton.org/blog/\]\(http://clip.ouvaton.org/blog/\](http://clip.ouvaton.org/blog/]%28http://clip.ouvaton.org/blog/\)\)
+\* habitat co-géré: \[[http://clip.ouvaton.org/blog/\]\(http://clip.ouvaton.org/blog/\](http://clip.ouvaton.org/blog/]%28http://clip.ouvaton.org/blog/%29\)
 
 Idées un peu random autour de \*\*musique / méditation / biofeedback\*\*:
 
@@ -132,9 +132,9 @@ Idées un peu random autour de \*\*musique / méditation / biofeedback\*\*:
 
 \* Auto-méditation: se faire une méditation guidée de sa propre voix: enfin construire un vrai dialogue avec soi \\(de la même manière qu'écrire aide à construire la pensée, accorder parole et corps\\)
 
-\* chants religieux + tambours chamaniques \\(ex Hildegard von Bingen \[[https://www.youtube.com/watch?v=Ei88J4lERbk\]\(https://www.youtube.com/watch?v=Ei88J4lERbk\](https://www.youtube.com/watch?v=Ei88J4lERbk]%28https://www.youtube.com/watch?v=Ei88J4lERbk\)\) + \[[https://www.youtube.com/watch?v=BkzA\\_u9smXU&t=311s\]\(https://www.youtube.com/watch?v=BkzA\_u9smXU&t=311s\)\\](https://www.youtube.com/watch?v=BkzA\_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29\\)\). Ajouter des sons binauraux par dessus qui sont modulés en fonction du rythme cardiaque et / ou de la musique elle même
+\* chants religieux + tambours chamaniques \\(ex Hildegard von Bingen \[[https://www.youtube.com/watch?v=Ei88J4lERbk\]\(https://www.youtube.com/watch?v=Ei88J4lERbk\](https://www.youtube.com/watch?v=Ei88J4lERbk]%28https://www.youtube.com/watch?v=Ei88J4lERbk%29%29 + [[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29\]%28[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29\\)\]\([https://www.youtube.com/watch?v=BkzA\_u9smXU&t=311s\]\(https://www.youtube.com/watch?v=BkzA\_u9smXU&t=311s\)\)\)\](https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29%29\)\). Ajouter des sons binauraux par dessus qui sont modulés en fonction du rythme cardiaque et / ou de la musique elle même
 
-\* un peu comme avant: mettre des percussions et moduler des sons binauraux sur des chants grégoriens. Utiliser l'API DOM audio: \[[https://developer.mozilla.org/fr/docs/Web/API/Web\\_Audio\\_API\]\(https://developer.mozilla.org/fr/docs/Web/API/Web\_Audio\_API\](https://developer.mozilla.org/fr/docs/Web/API/Web\_Audio\_API]%28https://developer.mozilla.org/fr/docs/Web/API/Web_Audio_API\)\). Avec \[[https://alemangui.github.io/pizzicato/\]\(https://alemangui.github.io/pizzicato/\](https://alemangui.github.io/pizzicato/]%28https://alemangui.github.io/pizzicato/\)\) ?
+\* un peu comme avant: mettre des percussions et moduler des sons binauraux sur des chants grégoriens. Utiliser l'API DOM audio: \[[https://developer.mozilla.org/fr/docs/Web/API/Web\\_Audio\\_API\]\(https://developer.mozilla.org/fr/docs/Web/API/Web\_Audio\_API\](https://developer.mozilla.org/fr/docs/Web/API/Web_Audio_API]%28https://developer.mozilla.org/fr/docs/Web/API/Web_Audio_API%29\). Avec \[[https://alemangui.github.io/pizzicato/\]\(https://alemangui.github.io/pizzicato/\](https://alemangui.github.io/pizzicato/]%28https://alemangui.github.io/pizzicato/%29\) ?
 
 Sur mon projet flou méditation + musique:
 
@@ -142,7 +142,7 @@ parler, crier, s'exprimer =&gt; amplifier \\(corriger ?\\) ce son pour le retran
 
 l'acoustique =&gt; celle des lieux sacrés
 
-le mouvement et la musique \[[https://www.youtube.com/watch?v=Hb2u60AXvs0\]\(https://www.youtube.com/watch?v=Hb2u60AXvs0\](https://www.youtube.com/watch?v=Hb2u60AXvs0]%28https://www.youtube.com/watch?v=Hb2u60AXvs0\)\) \\(ne manque que la parole\\)... Remplacer la danse soufi par le combat \\(et crier ?\\)
+le mouvement et la musique \[[https://www.youtube.com/watch?v=Hb2u60AXvs0\]\(https://www.youtube.com/watch?v=Hb2u60AXvs0\](https://www.youtube.com/watch?v=Hb2u60AXvs0]%28https://www.youtube.com/watch?v=Hb2u60AXvs0%29%29 %28ne manque que la parole%29... Remplacer la danse soufi par le combat %28et crier ?\\)
 
 un allongé avec un didgeridoo le long du corps. L'autre en joue \\(et celui qui est allongé doit reproduire les notes\\)
 
@@ -158,13 +158,13 @@ L'exotisme me brûle de façon positive: il transforme / transcende. J'ai besoin
 
 J'en ai marre de niquer la planète, prendre des pays pour des zoos et dépayser ma détresse. Je veux créer la vie ici.
 
-Tshirt \[[http://fyjc.bigcartel.com/product/inception\]\(http://fyjc.bigcartel.com/product/inception\](http://fyjc.bigcartel.com/product/inception]%28http://fyjc.bigcartel.com/product/inception\)\) \\(Obama Chirac, smooth pimping, suave gangsterism\\)
+Tshirt \[[http://fyjc.bigcartel.com/product/inception\]\(http://fyjc.bigcartel.com/product/inception\](http://fyjc.bigcartel.com/product/inception]%28http://fyjc.bigcartel.com/product/inception%29%29 %28Obama Chirac, smooth pimping, suave gangsterism\\)
 
-\[[https://usbeketrica.com/article/pierre-ducrozet-dans-la-tete-des-nouveaux-maitres-du-monde\]\(https://usbeketrica.com/article/pierre-ducrozet-dans-la-tete-des-nouveaux-maitres-du-monde\](https://usbeketrica.com/article/pierre-ducrozet-dans-la-tete-des-nouveaux-maitres-du-monde]%28https://usbeketrica.com/article/pierre-ducrozet-dans-la-tete-des-nouveaux-maitres-du-monde\)\)
+\[[https://usbeketrica.com/article/pierre-ducrozet-dans-la-tete-des-nouveaux-maitres-du-monde\]\(https://usbeketrica.com/article/pierre-ducrozet-dans-la-tete-des-nouveaux-maitres-du-monde\](https://usbeketrica.com/article/pierre-ducrozet-dans-la-tete-des-nouveaux-maitres-du-monde]%28https://usbeketrica.com/article/pierre-ducrozet-dans-la-tete-des-nouveaux-maitres-du-monde%29\)
 
-\[[http://pwn.lu/sf-fantasy-books.jpg\]\(http://pwn.lu/sf-fantasy-books.jpg\](http://pwn.lu/sf-fantasy-books.jpg]%28http://pwn.lu/sf-fantasy-books.jpg\)\)
+\[[http://pwn.lu/sf-fantasy-books.jpg\]\(http://pwn.lu/sf-fantasy-books.jpg\](http://pwn.lu/sf-fantasy-books.jpg]%28http://pwn.lu/sf-fantasy-books.jpg%29\)
 
-\[[https://www.amazon.com/Pencil-Me-Business-Drawing-People/dp/0996006036/ref=as\\_li\\_ss\\_tl?ie=UTF8&qid=1506525482&sr=8-1&keywords=Pencil+Me+In&linkCode=sl1&tag=eleganthack&linkId=ba008220c67821b84f823c09c3d48e2a\]\(https://www.amazon.com/Pencil-Me-Business-Drawing-People/dp/0996006036/ref=as\_li\_ss\_tl?ie=UTF8&qid=1506525482&sr=8-1&keywords=Pencil+Me+In&linkCode=sl1&tag=eleganthack&linkId=ba008220c67821b84f823c09c3d48e2a\](https://www.amazon.com/Pencil-Me-Business-Drawing-People/dp/0996006036/ref=as\_li\_ss\_tl?ie=UTF8&qid=1506525482&sr=8-1&keywords=Pencil+Me+In&linkCode=sl1&tag=eleganthack&linkId=ba008220c67821b84f823c09c3d48e2a]%28https://www.amazon.com/Pencil-Me-Business-Drawing-People/dp/0996006036/ref=as_li_ss_tl?ie=UTF8&qid=1506525482&sr=8-1&keywords=Pencil+Me+In&linkCode=sl1&tag=eleganthack&linkId=ba008220c67821b84f823c09c3d48e2a\)\)
+\[[https://www.amazon.com/Pencil-Me-Business-Drawing-People/dp/0996006036/ref=as\\_li\\_ss\\_tl?ie=UTF8&qid=1506525482&sr=8-1&keywords=Pencil+Me+In&linkCode=sl1&tag=eleganthack&linkId=ba008220c67821b84f823c09c3d48e2a\]\(https://www.amazon.com/Pencil-Me-Business-Drawing-People/dp/0996006036/ref=as\_li\_ss\_tl?ie=UTF8&qid=1506525482&sr=8-1&keywords=Pencil+Me+In&linkCode=sl1&tag=eleganthack&linkId=ba008220c67821b84f823c09c3d48e2a\](https://www.amazon.com/Pencil-Me-Business-Drawing-People/dp/0996006036/ref=as_li_ss_tl?ie=UTF8&qid=1506525482&sr=8-1&keywords=Pencil+Me+In&linkCode=sl1&tag=eleganthack&linkId=ba008220c67821b84f823c09c3d48e2a]%28https://www.amazon.com/Pencil-Me-Business-Drawing-People/dp/0996006036/ref=as_li_ss_tl?ie=UTF8&qid=1506525482&sr=8-1&keywords=Pencil+Me+In&linkCode=sl1&tag=eleganthack&linkId=ba008220c67821b84f823c09c3d48e2a%29\)
 
 \#\# Lecture
 
@@ -184,13 +184,13 @@ Redshirts \\(John Scalzi\\) -&gt; EN
 
 The Goblin Emperor \\(Katherine Addison\\) -&gt; EN
 
-\[[https://www.babelio.com/livres/Sanderson-Elantris--Integrale/258515\]\(https://www.babelio.com/livres/Sanderson-Elantris--Integrale/258515\](https://www.babelio.com/livres/Sanderson-Elantris--Integrale/258515]%28https://www.babelio.com/livres/Sanderson-Elantris--Integrale/258515\)\)
+\[[https://www.babelio.com/livres/Sanderson-Elantris--Integrale/258515\]\(https://www.babelio.com/livres/Sanderson-Elantris--Integrale/258515\](https://www.babelio.com/livres/Sanderson-Elantris--Integrale/258515]%28https://www.babelio.com/livres/Sanderson-Elantris--Integrale/258515%29\)
 
 regarder les prix Hugo/Nebula/locus
 
 Spiritualité:
 
-\* \[[https://fr.wikipedia.org/wiki/La\\_Philosophie\\_de\\_la\\_liberté\]\(https://fr.wikipedia.org/wiki/La\_Philosophie\_de\_la\_liberté\](https://fr.wikipedia.org/wiki/La\_Philosophie\_de\_la\_liberté]%28https://fr.wikipedia.org/wiki/La_Philosophie_de_la_liberté\)\)
+\* \[[https://fr.wikipedia.org/wiki/La\\_Philosophie\\_de\\_la\\_liberté\]\(https://fr.wikipedia.org/wiki/La\_Philosophie\_de\_la\_liberté\](https://fr.wikipedia.org/wiki/La_Philosophie_de_la_liberté]%28https://fr.wikipedia.org/wiki/La_Philosophie_de_la_liberté%29\)
 
 \* Jung and astrology
 
@@ -198,7 +198,7 @@ Spiritualité:
 
 Self-help:
 
-\* radical honesty \[[http://www.goodreads.com/book/show/551511.Radical\\_Honesty\\_?from\\_search=true\]\(http://www.goodreads.com/book/show/551511.Radical\_Honesty\_?from\_search=true\](http://www.goodreads.com/book/show/551511.Radical\_Honesty\_?from\_search=true]%28http://www.goodreads.com/book/show/551511.Radical_Honesty_?from_search=true\)\)
+\* radical honesty \[[http://www.goodreads.com/book/show/551511.Radical\_Honesty\_?from\_search=true\]\(http://www.goodreads.com/book/show/551511.Radical\_Honesty\_?from\_search=true\](http://www.goodreads.com/book/show/551511.Radical_Honesty_?from_search=true]%28http://www.goodreads.com/book/show/551511.Radical_Honesty_?from_search=true%29\)
 
 Histoire:
 
@@ -210,23 +210,23 @@ Paleo-ish:
 
 Société / politique:
 
-\* \[[https://www.amazon.fr/Leisure-Basis-Culture-Josef-Pieper/dp/0865972109\]\(https://www.amazon.fr/Leisure-Basis-Culture-Josef-Pieper/dp/0865972109\](https://www.amazon.fr/Leisure-Basis-Culture-Josef-Pieper/dp/0865972109]%28https://www.amazon.fr/Leisure-Basis-Culture-Josef-Pieper/dp/0865972109\)\)
+\* \[[https://www.amazon.fr/Leisure-Basis-Culture-Josef-Pieper/dp/0865972109\]\(https://www.amazon.fr/Leisure-Basis-Culture-Josef-Pieper/dp/0865972109\](https://www.amazon.fr/Leisure-Basis-Culture-Josef-Pieper/dp/0865972109]%28https://www.amazon.fr/Leisure-Basis-Culture-Josef-Pieper/dp/0865972109%29\)
 
 \* Tractatus theologico-politicus de Spinoza
 
-\* \[[https://www.amazon.com/Why-Nations-Fail-Origins-Prosperity/dp/0307719227\]\(https://www.amazon.com/Why-Nations-Fail-Origins-Prosperity/dp/0307719227\](https://www.amazon.com/Why-Nations-Fail-Origins-Prosperity/dp/0307719227]%28https://www.amazon.com/Why-Nations-Fail-Origins-Prosperity/dp/0307719227\)\)
+\* \[[https://www.amazon.com/Why-Nations-Fail-Origins-Prosperity/dp/0307719227\]\(https://www.amazon.com/Why-Nations-Fail-Origins-Prosperity/dp/0307719227\](https://www.amazon.com/Why-Nations-Fail-Origins-Prosperity/dp/0307719227]%28https://www.amazon.com/Why-Nations-Fail-Origins-Prosperity/dp/0307719227%29\)
 
-\* \[[https://www.amazon.fr/Écopunk-punks-animale-écologie-radicale/dp/2369350369\]\(https://www.amazon.fr/Écopunk-punks-animale-écologie-radicale/dp/2369350369\](https://www.amazon.fr/Écopunk-punks-animale-écologie-radicale/dp/2369350369]%28https://www.amazon.fr/Écopunk-punks-animale-écologie-radicale/dp/2369350369\)\)
+\* \[[https://www.amazon.fr/Écopunk-punks-animale-écologie-radicale/dp/2369350369\]\(https://www.amazon.fr/Écopunk-punks-animale-écologie-radicale/dp/2369350369\](https://www.amazon.fr/Écopunk-punks-animale-écologie-radicale/dp/2369350369]%28https://www.amazon.fr/Écopunk-punks-animale-écologie-radicale/dp/2369350369%29\)
 
-\* \[[https://eowilsonfoundation.org/half-earth-our-planet-s-fight-for-life/\]\(https://eowilsonfoundation.org/half-earth-our-planet-s-fight-for-life/\](https://eowilsonfoundation.org/half-earth-our-planet-s-fight-for-life/]%28https://eowilsonfoundation.org/half-earth-our-planet-s-fight-for-life/\)\)
+\* \[[https://eowilsonfoundation.org/half-earth-our-planet-s-fight-for-life/\]\(https://eowilsonfoundation.org/half-earth-our-planet-s-fight-for-life/\](https://eowilsonfoundation.org/half-earth-our-planet-s-fight-for-life/]%28https://eowilsonfoundation.org/half-earth-our-planet-s-fight-for-life/%29\)
 
 Design:
 
-\* \[[https://www.amazon.com/Universal-Principles-Design-Revised-Updated/dp/1592535879/\]\(https://www.amazon.com/Universal-Principles-Design-Revised-Updated/dp/1592535879/\](https://www.amazon.com/Universal-Principles-Design-Revised-Updated/dp/1592535879/]%28https://www.amazon.com/Universal-Principles-Design-Revised-Updated/dp/1592535879/\)\)
+\* \[[https://www.amazon.com/Universal-Principles-Design-Revised-Updated/dp/1592535879/\]\(https://www.amazon.com/Universal-Principles-Design-Revised-Updated/dp/1592535879/\](https://www.amazon.com/Universal-Principles-Design-Revised-Updated/dp/1592535879/]%28https://www.amazon.com/Universal-Principles-Design-Revised-Updated/dp/1592535879/%29\)
 
-\* \[[https://design.blog/\]\(https://design.blog/\](https://design.blog/]%28https://design.blog/\)\) \\(design et inclusion\\)
+\* \[[https://design.blog/\]\(https://design.blog/\](https://design.blog/]%28https://design.blog/%29%29 %28design et inclusion\\)
 
-\* \`Thought as a Technology\` \[[http://cognitivemedium.com/tat/index.html\]\(http://cognitivemedium.com/tat/index.html\](http://cognitivemedium.com/tat/index.html]%28http://cognitivemedium.com/tat/index.html\)\)
+\* \`Thought as a Technology\` \[[http://cognitivemedium.com/tat/index.html\]\(http://cognitivemedium.com/tat/index.html\](http://cognitivemedium.com/tat/index.html]%28http://cognitivemedium.com/tat/index.html%29\)
 
 \* Trouver un résumé de "Nudge: Improving Decisions about Health, Wealth, and Happiness"
 
@@ -254,23 +254,23 @@ Romans:
 
 \* soleil vert
 
-\* \[[https://www.youtube.com/watch?v=L8QZEVTeHFY\]\(https://www.youtube.com/watch?v=L8QZEVTeHFY\](https://www.youtube.com/watch?v=L8QZEVTeHFY]%28https://www.youtube.com/watch?v=L8QZEVTeHFY\)\) =&gt; le nom des gens
+\* \[[https://www.youtube.com/watch?v=L8QZEVTeHFY\]\(https://www.youtube.com/watch?v=L8QZEVTeHFY\](https://www.youtube.com/watch?v=L8QZEVTeHFY]%28https://www.youtube.com/watch?v=L8QZEVTeHFY%29\) =&gt; le nom des gens
 
-\* \[[https://www.youtube.com/watch?v=TnzD-XRXiHk\]\(https://www.youtube.com/watch?v=TnzD-XRXiHk\](https://www.youtube.com/watch?v=TnzD-XRXiHk]%28https://www.youtube.com/watch?v=TnzD-XRXiHk\)\) =&gt; cleo de 5 à 7
+\* \[[https://www.youtube.com/watch?v=TnzD-XRXiHk\]\(https://www.youtube.com/watch?v=TnzD-XRXiHk\](https://www.youtube.com/watch?v=TnzD-XRXiHk]%28https://www.youtube.com/watch?v=TnzD-XRXiHk%29\) =&gt; cleo de 5 à 7
 
 \#\# Usbek & Rica
 
-\* la série \[[https://usbeketrica.com/article/design-fiction-pourquoi-etudier-des-collections-d-imaginaires\]\(https://usbeketrica.com/article/design-fiction-pourquoi-etudier-des-collections-d-imaginaires\](https://usbeketrica.com/article/design-fiction-pourquoi-etudier-des-collections-d-imaginaires]%28https://usbeketrica.com/article/design-fiction-pourquoi-etudier-des-collections-d-imaginaires\)\) ! l'épisode 8 sur le story telling était super chouette. vient de \[[https://www.amazon.fr/Jouer-avec-futurs-Utilisez-entreprise/dp/274406646X\]\(https://www.amazon.fr/Jouer-avec-futurs-Utilisez-entreprise/dp/274406646X\](https://www.amazon.fr/Jouer-avec-futurs-Utilisez-entreprise/dp/274406646X]%28https://www.amazon.fr/Jouer-avec-futurs-Utilisez-entreprise/dp/274406646X\)\)
+\* la série \[[https://usbeketrica.com/article/design-fiction-pourquoi-etudier-des-collections-d-imaginaires\]\(https://usbeketrica.com/article/design-fiction-pourquoi-etudier-des-collections-d-imaginaires\](https://usbeketrica.com/article/design-fiction-pourquoi-etudier-des-collections-d-imaginaires]%28https://usbeketrica.com/article/design-fiction-pourquoi-etudier-des-collections-d-imaginaires%29\) ! l'épisode 8 sur le story telling était super chouette. vient de \[[https://www.amazon.fr/Jouer-avec-futurs-Utilisez-entreprise/dp/274406646X\]\(https://www.amazon.fr/Jouer-avec-futurs-Utilisez-entreprise/dp/274406646X\](https://www.amazon.fr/Jouer-avec-futurs-Utilisez-entreprise/dp/274406646X]%28https://www.amazon.fr/Jouer-avec-futurs-Utilisez-entreprise/dp/274406646X%29\)
 
 \#\# Thèmes intéressants
 
-\* The blue economy: \[[http://www.theblueeconomy.org/\]\(http://www.theblueeconomy.org/\](http://www.theblueeconomy.org/]%28http://www.theblueeconomy.org/\)\)
+\* The blue economy: \[[http://www.theblueeconomy.org/\]\(http://www.theblueeconomy.org/\](http://www.theblueeconomy.org/]%28http://www.theblueeconomy.org/%29\)
 
 \* réflexes archaïques
 
 \#\# Séries
 
-\* \[[https://www.wired.com/story/the-handmaids-tale-emmys?mbid=nl\\_091617\\_daily&CNDID=%%CUST\\_ID%%\]\(https://www.wired.com/story/the-handmaids-tale-emmys?mbid=nl\_091617\_daily&CNDID=%%CUST\_ID%%\](https://www.wired.com/story/the-handmaids-tale-emmys?mbid=nl\_091617\_daily&CNDID=%%CUST\_ID%%]%28https://www.wired.com/story/the-handmaids-tale-emmys?mbid=nl_091617_daily&CNDID=%%CUST_ID%%\)\)
+\* \[[https://www.wired.com/story/the-handmaids-tale-emmys?mbid=nl\\_091617\\_daily&CNDID=%%CUST\\_ID%%\]\(https://www.wired.com/story/the-handmaids-tale-emmys?mbid=nl\_091617\_daily&CNDID=%%CUST\_ID%%\](https://www.wired.com/story/the-handmaids-tale-emmys?mbid=nl_091617_daily&CNDID=%%CUST_ID%%]%28https://www.wired.com/story/the-handmaids-tale-emmys?mbid=nl_091617_daily&CNDID=%%CUST_ID%%%29\)
 
 \#\# Auteurs
 
@@ -350,7 +350,7 @@ Humoristes:
 
 \* Amy schumer
 
-\[[http://thoughtcatalog.com/daniel-coffeen/2014/11/the-fascist-inside-us/\]\(http://thoughtcatalog.com/daniel-coffeen/2014/11/the-fascist-inside-us/\](http://thoughtcatalog.com/daniel-coffeen/2014/11/the-fascist-inside-us/]%28http://thoughtcatalog.com/daniel-coffeen/2014/11/the-fascist-inside-us/\)\)
+\[[http://thoughtcatalog.com/daniel-coffeen/2014/11/the-fascist-inside-us/\]\(http://thoughtcatalog.com/daniel-coffeen/2014/11/the-fascist-inside-us/\](http://thoughtcatalog.com/daniel-coffeen/2014/11/the-fascist-inside-us/]%28http://thoughtcatalog.com/daniel-coffeen/2014/11/the-fascist-inside-us/%29\)
 
 \`\`\`
 
@@ -374,13 +374,13 @@ the Structure of Scientific Revolutions ?
 
 The subtile art of not giving a fuck.
 
-\[[https://markmanson.net/6-books\]\(https://markmanson.net/6-books\](https://markmanson.net/6-books]%28https://markmanson.net/6-books\)\)
+\[[https://markmanson.net/6-books\]\(https://markmanson.net/6-books\](https://markmanson.net/6-books]%28https://markmanson.net/6-books%29\)
 
-chorale pop: \[[https://www.lumiiq.com/uniisson/?gclid=CjwKEAjws-LKBRDCk9v6\\_cnBgjISJAADkzXeT4hEOIolXkbKxVm\\_xcdrTO621DdYaeFRldObz5btcBoCnJPw\\_wcB\\#infospratiques\]\(https://www.lumiiq.com/uniisson/?gclid=CjwKEAjws-LKBRDCk9v6\_cnBgjISJAADkzXeT4hEOIolXkbKxVm\_xcdrTO621DdYaeFRldObz5btcBoCnJPw\_wcB\#infospratiques\](https://www.lumiiq.com/uniisson/?gclid=CjwKEAjws-LKBRDCk9v6\_cnBgjISJAADkzXeT4hEOIolXkbKxVm\_xcdrTO621DdYaeFRldObz5btcBoCnJPw\_wcB\#infospratiques]%28https://www.lumiiq.com/uniisson/?gclid=CjwKEAjws-LKBRDCk9v6_cnBgjISJAADkzXeT4hEOIolXkbKxVm_xcdrTO621DdYaeFRldObz5btcBoCnJPw_wcB#infospratiques\)\)
+chorale pop: \[[https://www.lumiiq.com/uniisson/?gclid=CjwKEAjws-LKBRDCk9v6\\_cnBgjISJAADkzXeT4hEOIolXkbKxVm\\_xcdrTO621DdYaeFRldObz5btcBoCnJPw\\_wcB\\#infospratiques\]\(https://www.lumiiq.com/uniisson/?gclid=CjwKEAjws-LKBRDCk9v6\_cnBgjISJAADkzXeT4hEOIolXkbKxVm\_xcdrTO621DdYaeFRldObz5btcBoCnJPw\_wcB\#infospratiques\](https://www.lumiiq.com/uniisson/?gclid=CjwKEAjws-LKBRDCk9v6_cnBgjISJAADkzXeT4hEOIolXkbKxVm_xcdrTO621DdYaeFRldObz5btcBoCnJPw_wcB#infospratiques]%28https://www.lumiiq.com/uniisson/?gclid=CjwKEAjws-LKBRDCk9v6_cnBgjISJAADkzXeT4hEOIolXkbKxVm_xcdrTO621DdYaeFRldObz5btcBoCnJPw_wcB#infospratiques%29\)
 
 La cellule comme être conscient =&gt; passage à l'échelle jusqu'à l'Homme. + lien avec la musique ?
 
-\[[https://www.amazon.com/Clean-Money-Revolution-Reinventing-Capitalism/dp/0865718393\]\(https://www.amazon.com/Clean-Money-Revolution-Reinventing-Capitalism/dp/0865718393\](https://www.amazon.com/Clean-Money-Revolution-Reinventing-Capitalism/dp/0865718393]%28https://www.amazon.com/Clean-Money-Revolution-Reinventing-Capitalism/dp/0865718393\)\)
+\[[https://www.amazon.com/Clean-Money-Revolution-Reinventing-Capitalism/dp/0865718393\]\(https://www.amazon.com/Clean-Money-Revolution-Reinventing-Capitalism/dp/0865718393\](https://www.amazon.com/Clean-Money-Revolution-Reinventing-Capitalism/dp/0865718393]%28https://www.amazon.com/Clean-Money-Revolution-Reinventing-Capitalism/dp/0865718393%29\)
 
 dans les lectures cools que j'ai eues ajouter Silo et Spin
 
