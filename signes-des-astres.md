@@ -1,5 +1,8 @@
 ### Astro fuck yourself
 
+Same Soul, Many Bodies: Discover the Healing Power of Future Lives through Progression Therapy
+https://www.amazon.com/gp/aw/d/0743264347/ref=dbs_a_w_dp_0743264347
+
 ![image](https://user-images.githubusercontent.com/24764960/27288313-a5f3ba30-5506-11e7-9905-53ada94ca1ae.png)
 ![image](https://user-images.githubusercontent.com/24764960/27304154-7a8949e6-553d-11e7-872a-55051a85c008.png)
 ^--- Polich-Page house system and sidereal tropic (don't ask why).
