@@ -174,4 +174,23 @@ Je suis:
 aérien dans la fixité: je me mêle j'observe je fais des liens, je réarrange, je simplifie.
 ce que j'aime dans **le détournement** (mérite un chapitre !!): on se retrouve à "tomber" dans le familier. On est surpris de réaliser ce qu'on a sous les lieux, ce qui était latent. Comme faire un voyage à l'autre bout du monde en un instant pour revenir à la maison, avec un oeil neuf cette fois. (Banksy !)
 
+Impressions de vies préc.
+
+- se battre armé d'une épée en horde / se prendre un coup dans la tête (les yeux)
+- vie monacale / position de leader spirituel. Charisme gravité qui emporte les autres
+- femme (un peu mondaine ?) sensuelle qui vit dans l'ombre du mari, joue de son charme mais reste dans une dépendance totale
+- problèmes d'addiction (alcool) pour étouffer une douleur
+- expérience de vie bohème, sorties urbaines mondaines. semi artiste séducteur
+- visions d'une petite 
+- perte de mère jeune (vie précédente ? parce que intense petit)
+- vie de passivité d'incapacité à agir ? voir le temps passer les gens mourir et se désepérer de ne pas vivre(pareil: vie préc ? parce que intense petit)
+
+comme astro:
+fascinant mais incroyablement toxique.
+Mes propres souvenirs que je peux checker avec la famille je pourrais en tisser des choses complètement fausses.
+Donc ce ne sont pas les détails qui comptent mais les émotions que j'en tirent. Et surtout est-ce que m'intéresser à ces émotions
+me sert ici et maintenant ??? Si ça ne débloque pas quelque chose en moi mais que ça me force à m'identifier à qque chose dont j'ai du mal à saisir la véracité c'est mauvais.
+Comme l'astro, finalement il faut le voir comme une machine à générer des images sans lien avec la vérité. Par le décalage avec la vision de moi "routinière / encrassée" n'importe quelle image autre offre un contre point et des milliards d'axe de réflexion.
+Ca reste essentiel / supra intéressant pour moi de savoir s'il y a quelque logique vérité derière les méthodes d'astro et de "vie passée" ou même tout système religieux spritiuel.
+MAIS quoiqu'il en soit comme PARTOUT: bien différencier les explications d'un modèle qu'on utilise et l'application pure de ce modèle (qui se fiche de toute théorisation et ne prends "que le meilleur" que ce qui résiste à tout l'ici et maintenant)
 
