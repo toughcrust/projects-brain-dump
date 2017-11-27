@@ -7,4 +7,5 @@
 * Micro fermes
 * Studio design
 * Mega \(road\) trip
+* [Signes des astres](signes-des-astres.md)
 
