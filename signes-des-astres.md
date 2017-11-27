@@ -2,6 +2,7 @@
 
 Same Soul, Many Bodies: Discover the Healing Power of Future Lives through Progression Therapy
 https://www.amazon.com/gp/aw/d/0743264347/ref=dbs_a_w_dp_0743264347
+https://www.amazon.com/Care-Soul-Twenty-fifth-Anniversary-Cultivating/dp/0062415670/ref=redir_mobile_desktop?_encoding=UTF8&dpID=41ehGQaeZ%2BL&dpPl=1&psc=1&refRID=WV4TYEKNJE5KXEB6FJXM&ref_=pd_aw_sim_14_1
 
 ![image](https://user-images.githubusercontent.com/24764960/27288313-a5f3ba30-5506-11e7-9905-53ada94ca1ae.png)
 ![image](https://user-images.githubusercontent.com/24764960/27304154-7a8949e6-553d-11e7-872a-55051a85c008.png)
@@ -184,7 +185,8 @@ Impressions de vies préc.
 - femme (un peu mondaine ?) sensuelle qui vit dans l'ombre du mari, joue de son charme mais reste dans une dépendance totale
 - problèmes d'addiction (alcool) pour étouffer une douleur
 - expérience de vie bohème, sorties urbaines mondaines. semi artiste séducteur
-- visions d'une petite 
+- visions d'une petite fille (8/10 ans) pour laquelle j'ai un sentiment maternel / paternel très puissant. qui me remplit de joie et pour qui je crains
+- tendance à l'auto-exclusion / acceptation mais peur du froid, de ne pas avoir de toit (semble proche) 
 - perte de mère jeune (vie précédente ? parce que intense petit)
 - vie de passivité d'incapacité à agir ? voir le temps passer les gens mourir et se désepérer de ne pas vivre(pareil: vie préc ? parce que intense petit)
 
