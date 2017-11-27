@@ -5,7 +5,7 @@
 * Sources d'inspiration
 * Trucs qui m'ont marqué
 * Micro fermes
-* Studio design
+* [Studio design](studio-design.md)
 * Mega \(road\) trip
 * [Signes des astres](signes-des-astres.md)
 * [Manger](manger.md)
