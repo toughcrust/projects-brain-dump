@@ -10,4 +10,5 @@
 * [Signes des astres](signes-des-astres.md)
 * [Manger](manger.md)
 * Idées pas ouf que j'ai besoin d'archiver
+* Logement
 

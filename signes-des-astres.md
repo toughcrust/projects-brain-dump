@@ -219,3 +219,6 @@ Level 7 - Receive without giving, give without receiving
 Le genre de culpabilité qui me poursuit: https://www.youtube.com/watch?v=TtpqCMG63fI
 mais je sais pas d'où
 
+ce que plusieurs vies ou la croyance d'en avoir plusieurs ou les interférences de vies expliquent:
+pourquoi on a des peurs en particuliers, des talents précis, des impressions de déjà vu, des personnes avec lesquelles on a plus d'empathie. Pourquoi on peut avoir de grands dialogues avec soi mêmes, pourquoi les grandes idées qui nous viennent ont le goût de la redécouverte. 
+
