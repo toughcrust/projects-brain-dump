@@ -199,3 +199,20 @@ Comme l'astro, finalement il faut le voir comme une machine à générer des ima
 Ca reste essentiel / supra intéressant pour moi de savoir s'il y a quelque logique vérité derière les méthodes d'astro et de "vie passée" ou même tout système religieux spritiuel.
 MAIS quoiqu'il en soit comme PARTOUT: bien différencier les explications d'un modèle qu'on utilise et l'application pure de ce modèle (qui se fiche de toute théorisation et ne prends "que le meilleur" que ce qui résiste à tout l'ici et maintenant)
 
+
+ her book, Varda Hasselmann describes the seven soul age levels of the old soul as follows:
+
+Level 1 - Act against conventional morals from inner conviction
+
+Level 2 - Honestly admire yourself, dispense with the admiration of others
+
+Level 3 - Combine precise introspection with active results
+
+Level 4 - Unite your well-being with the welfare of the community
+
+Level 5 - Follow a path unwaveringly without knowing where it leads
+
+Level 6 - Impress by being, not by doing
+
+Level 7 - Receive without giving, give without receiving
+
