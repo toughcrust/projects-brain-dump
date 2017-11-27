@@ -182,6 +182,7 @@ Impressions de vies préc.
 
 - se battre armé d'une épée en horde / se prendre un coup dans la tête (les yeux)
 - vie monacale / position de leader spirituel. Charisme gravité qui emporte les autres
+- violence sexuelle (bourreau ou victime ?)
 - femme (un peu mondaine ?) sensuelle qui vit dans un monde de pouvoir (politique sûrement) et par l'intermédiaire de son mari excerce une influence. Manipulation ou complicité ? Art de recevoir.
 - problèmes d'addiction (alcool) pour étouffer une douleur
 - expérience de vie bohème, sorties urbaines mondaines. semi artiste séducteur
@@ -201,7 +202,7 @@ Comme l'astro, finalement il faut le voir comme une machine à générer des ima
 Ca reste essentiel / supra intéressant pour moi de savoir s'il y a quelque logique vérité derière les méthodes d'astro et de "vie passée" ou même tout système religieux spritiuel.
 MAIS quoiqu'il en soit comme PARTOUT: bien différencier les explications d'un modèle qu'on utilise et l'application pure de ce modèle (qui se fiche de toute théorisation et ne prends "que le meilleur" que ce qui résiste à tout l'ici et maintenant)
 
-Leçons de ces vies imaginées: j'ai exercé une influence mais toujours dans un cadre donné. Il est temps pour moi d'être réellement créateur ma vie. En amour, je crois qu'il me reste à vraiment le découvrir ... Mélange d'âme vieille pour la spiritualité mais pas encore mâture en matière d'amour.
+Leçons de ces vies imaginées: j'ai exercé une influence mais toujours dans un cadre donné. Il est temps pour moi d'être réellement créateur ma vie. En amour, je crois qu'il me reste à vraiment le découvrir ... Mélange d'âme vieille pour la spiritualité mais pas encore mâture en matière d'amour. Inaptitude à prendre les devants, à aller vers les êtres que je trouve les plus attirants: doux, libres, indépendants, vivants et intelligents. Il faut que j'aille vers là, quelque soit le cadre de référence dans lequel je me place à moins que je ne cherche à me rabaisser moi même.
 
  her book, Varda Hasselmann describes the seven soul age levels of the old soul as follows:
 
