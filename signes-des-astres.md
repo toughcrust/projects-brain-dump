@@ -182,7 +182,7 @@ Impressions de vies préc.
 
 - se battre armé d'une épée en horde / se prendre un coup dans la tête (les yeux)
 - vie monacale / position de leader spirituel. Charisme gravité qui emporte les autres
-- femme (un peu mondaine ?) sensuelle qui vit dans l'ombre du mari, joue de son charme mais reste dans une dépendance totale
+- femme (un peu mondaine ?) sensuelle qui vit dans un monde de pouvoir (politique sûrement) et par l'intermédiaire de son mari excerce une influence. Manipulation ou complicité ? Art de recevoir.
 - problèmes d'addiction (alcool) pour étouffer une douleur
 - expérience de vie bohème, sorties urbaines mondaines. semi artiste séducteur
 - visions d'une petite fille (8/10 ans) pour laquelle j'ai un sentiment maternel / paternel très puissant. qui me remplit de joie et pour qui je crains
@@ -199,6 +199,7 @@ Comme l'astro, finalement il faut le voir comme une machine à générer des ima
 Ca reste essentiel / supra intéressant pour moi de savoir s'il y a quelque logique vérité derière les méthodes d'astro et de "vie passée" ou même tout système religieux spritiuel.
 MAIS quoiqu'il en soit comme PARTOUT: bien différencier les explications d'un modèle qu'on utilise et l'application pure de ce modèle (qui se fiche de toute théorisation et ne prends "que le meilleur" que ce qui résiste à tout l'ici et maintenant)
 
+Leçons de ces vies imaginées: j'ai exercé une influence mais toujours dans un cadre donné. Il est temps pour moi d'être réellement créateur ma vie. En amour, je crois qu'il me reste à vraiment le découvrir ... Mélange d'âme vieille pour la spiritualité mais pas encore mâture en matière d'amour.
 
  her book, Varda Hasselmann describes the seven soul age levels of the old soul as follows:
 
@@ -221,4 +222,5 @@ mais je sais pas d'où
 
 ce que plusieurs vies ou la croyance d'en avoir plusieurs ou les interférences de vies expliquent:
 pourquoi on a des peurs en particuliers, des talents précis, des impressions de déjà vu, des personnes avec lesquelles on a plus d'empathie. Pourquoi on peut avoir de grands dialogues avec soi mêmes, pourquoi les grandes idées qui nous viennent ont le goût de la redécouverte. 
+La puissance du truc serait d'aller puiser dans les talents et les joies passées pour aller de l'avant, oser.
 
