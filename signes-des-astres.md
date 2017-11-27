@@ -216,3 +216,6 @@ Level 6 - Impress by being, not by doing
 
 Level 7 - Receive without giving, give without receiving
 
+Le genre de culpabilité qui me poursuit: https://www.youtube.com/watch?v=TtpqCMG63fI
+mais je sais pas d'où
+
