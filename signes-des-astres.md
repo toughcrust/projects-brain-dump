@@ -190,6 +190,8 @@ Impressions de vies préc.
 - perte de mère jeune (vie précédente ? parce que intense petit)
 - vie de passivité d'incapacité à agir ? voir le temps passer les gens mourir et se désepérer de ne pas vivre(pareil: vie préc ? parce que intense petit)
 
+Le froid me connect à l'une de ces XP, le fait d'être bourré révèle un autre archétype, etc ...
+
 comme astro:
 fascinant mais incroyablement toxique.
 Mes propres souvenirs que je peux checker avec la famille je pourrais en tisser des choses complètement fausses.
