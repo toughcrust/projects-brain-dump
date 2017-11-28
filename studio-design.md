@@ -1,2 +1,2 @@
 studio Shépère
-C'est quand les vacances ?
+Le boulot c'est cool. EtcC'est quand les vacances ?
