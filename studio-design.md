@@ -1,5 +1,7 @@
 Studio SHEPERE (police épaisse VICE / années 90 3 couleurs magenta, jaune, cyan en décalé)
-Bosser c'est cool. Vivement ce week-end !
+
+Bosser c'est cool. Et vivement ce week-end !
+**Design and forget**
 
 animation façon "en train d'écrire":
 generate, diverge, cooler, simpler, cooler, I want more
