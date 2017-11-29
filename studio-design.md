@@ -1,5 +1,7 @@
 Studio SHEPERE (police épaisse VICE / années 90 3 couleurs magenta, jaune, cyan en décalé)
 
+Design trash enjoy
+
 Bosser c'est cool. Et vivement ce week-end !
 **Design and forget**
 
