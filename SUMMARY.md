@@ -11,4 +11,5 @@
 * [Manger](manger.md)
 * [Idées pas ouf que j'ai besoin d'archiver](idees-pas-ouf-que-jai-besoin-darchiver.md)
 * [Logement](logement.md)
+* [Musique / technologie / méditation](musique-technologie-meditation.md)
 
