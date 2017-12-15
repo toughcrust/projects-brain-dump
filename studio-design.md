@@ -4,6 +4,11 @@
 **Ingénierie ASCII artistique cuisinée maison 🏠**
 **Design stdio**
 
+Monday motto
+
+Maïeutique de coolitude pour se sortir de la merde et faire pousser dessus
+
+**méthodes**
 crap cutting / TGIF joy bubbling / terrestrial space station / over design / convention flipping / weirdo connection
 
 A ajouter: 
