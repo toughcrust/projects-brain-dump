@@ -1,8 +1,10 @@
 **SHEPERE** (police épaisse VICE / années 90 3 couleurs magenta, jaune, cyan en décalé)
 
 **Shit-fed warmth**
-**Ingénierie ASCII artistique cuisinée maison 🏠**
+**Ingénierie ASCII artistique**
 **STDIO design**
+
+Design for un-designed experiences. Think hard to think less.
 
 Holy shift ! The love bits, "Détendez votre zone de confort"
 
