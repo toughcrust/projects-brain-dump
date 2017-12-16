@@ -13,4 +13,5 @@
 * [Logement](logement.md)
 * [Musique / technologie / méditation](musique-technologie-meditation.md)
 * [Doodling: what people say](doodling-what-people-say.md)
+* [Crypto monnaie](crypto-monnaie.md)
 
