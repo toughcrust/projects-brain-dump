@@ -2,7 +2,9 @@
 
 **Shit-fed warmth**
 **Ingénierie ASCII artistique cuisinée maison 🏠**
-**Design stdio**
+**STDIO design**
+
+Holy shift ! The love bits, "Détendez votre zone de confort"
 
 Monday motto
 
