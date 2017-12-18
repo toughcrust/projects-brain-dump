@@ -1,12 +1,15 @@
 **SHEPERE** (police épaisse VICE / années 90 3 couleurs magenta, jaune, cyan en décalé)
 
-**Shit-fed warmth**
-**Ingénierie ASCII artistique**
-**STDIO design**
+Alt names: **STDIO design**, Holy shift !
 
-Design for un-designed experiences. Think hard to think less.
+Alt: mottos
+Shit-fed warmth
+Ingénierie ASCII artistique
+Experience un-designed. 
+Sink deep to think less.
+Tinker thanks
 
-Holy shift ! The love bits, "Détendez votre zone de confort"
+ The love bits, "Détendez votre zone de confort"
 
 Monday motto
 
