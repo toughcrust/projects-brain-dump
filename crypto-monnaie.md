@@ -3,4 +3,4 @@ On fait confiance à quelqu'un pour qu'il rembourse sa dette.
 
 Donc un système où chacun peut s'endetter. On doit rendre au système. Tendre vers l'égalisation. Et on donne sa confiance à d'autres: soit sous la forme de don (parce qu'on estime que telle personne fait quelque chose d'utile au bien commun), soit sous la forme d'une autorisation à s'endetter davantage. Pour le "don", il faudrait que ce ne soit pas en un nom propre mais une entité sociale séparée => entreprise.
 
-Valeur de base: des légumes Bio ? Pur un "minage" qui ait du sens à l'inverse du bitcoin.
+Valeur de base: des légumes Bio ? Pur un "minage" qui ait du sens à l'inverse du bitcoin. Problème: l'argent comme valeur d'échange ne doit pas avoir de valeur intrinsèque sinon les fluctuations de la marchandise liée impacte le cours de la monnaie. A moins que ce ne soit une denrée de base ? (le sel comme moyen d'échange)
