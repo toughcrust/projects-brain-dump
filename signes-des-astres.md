@@ -227,3 +227,18 @@ ce que plusieurs vies ou la croyance d'en avoir plusieurs ou les interférences 
 pourquoi on a des peurs en particuliers, des talents précis, des impressions de déjà vu, des personnes avec lesquelles on a plus d'empathie. Pourquoi on peut avoir de grands dialogues avec soi mêmes, pourquoi les grandes idées qui nous viennent ont le goût de la redécouverte. 
 La puissance du truc serait d'aller puiser dans les talents et les joies passées pour aller de l'avant, oser.
 
+### Planètes "rétrogrades"
+
+extraits tirés de http://sharpeastrology.com/2015/07/25/natal-chart-lessons-personal-planets-in-retrograde/
+
+#### Mercure
+
+A Mercury Retrograde native absorbs information on a more subjective level than a Mercury-direct native would. Facts will be taken from something this person hears, sees or reads, but **what is focused on most is the essence or the feeling this person gets from this information**. One with Mercury in retrograde will have inner conversations with themselves about something, which leads to an intensified perspective, and then have a difficult time outwardly expressing it. This often leads to one feeling greatly misunderstood. **Another focus for those with Mercury Retrograde is other peoples’ motives** – even if their intuitions may not be in tune with reality, **they will focus on whether or not others mean what they say**.
+
+Although many decisions are thought out in depth, other decisions are made rashly because you are frustrated with your thoughts going in circles.
+
+#### Venus
+
+Bof ^^
+
+
