@@ -229,13 +229,25 @@ La puissance du truc serait d'aller puiser dans les talents et les joies passée
 
 ### Planètes "rétrogrades"
 
-extraits tirés de http://sharpeastrology.com/2015/07/25/natal-chart-lessons-personal-planets-in-retrograde/
 
 #### Mercure
+
+de extraits tirés de http://sharpeastrology.com/2015/07/25/natal-chart-lessons-personal-planets-in-retrograde/
+
 
 A Mercury Retrograde native absorbs information on a more subjective level than a Mercury-direct native would. Facts will be taken from something this person hears, sees or reads, but **what is focused on most is the essence or the feeling this person gets from this information**. One with Mercury in retrograde will have inner conversations with themselves about something, which leads to an intensified perspective, and then have a difficult time outwardly expressing it. This often leads to one feeling greatly misunderstood. **Another focus for those with Mercury Retrograde is other peoples’ motives** – even if their intuitions may not be in tune with reality, **they will focus on whether or not others mean what they say**.
 
 Although many decisions are thought out in depth, other decisions are made rashly because you are frustrated with your thoughts going in circles.
+
+de http://www.lynnkoiner.com/astrology-articles/retrogrades-in-the-natal-horoscope :
+
+When Mercury is retrograde, the thought processes are introspective, deliberate and internalized. Before any personal matter can be discussed, it must be processed internally. 
+This means that, if you want to discuss a personal matter with a Mercury Retrograde friend, you must tell them what you want to discuss and set up an appointment to discuss it. If you want an immediate answer, you will not get an honest or well though out answer. They need time to brood and ponder.
+
+Because these people need to digest and process first, they are slow to defend themselves and slow to respond to queries of a personal nature unless they are prepared ahead of time.
+�	They appreciate a slow reaction in another.
+�	They can easily discuss non-personal subjects, their own interests and expertise, without introspection. This has already been done in the past. 
+On personal subjects, they may not know immediately how they feel about something � they need that brood and ponder time.
 
 #### Venus
 
