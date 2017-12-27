@@ -253,4 +253,14 @@ On personal subjects, they may not know immediately how they feel about somethin
 
 Bof ^^
 
+### Past life regressions
+
+#### Le moine
+
+Cathédrale de style gothique, pierre claire, lumière orangée. Sandales et robe beige claire de moine. Sensation de ne jamais parler (voeu de silence ou muet ?) et sons rares (des chants peut-être). A part la cathédrale, peu de lieux fréquentés. Un dortoir vaguement, une pièce commune où manger. Moine copiste ? Sensation de se morfondre à copier des lettres manuscrites. Pas de béatitude, au contraire un enfer de solitude, de coupure du monde. Impuissance à voir la vie défiler au dehors.
+
+Correspond pas mal à des difficultés d'adaptation / intégration que j'ai. Pectus excavatum: besoin de parler, d'expansion du coeur.
+
+
+
 
