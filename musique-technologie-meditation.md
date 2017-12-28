@@ -9,3 +9,13 @@ méditation "auto / personnalisée":
 - pour ce qui est de la voix qui guide: sa propre voix ? celle d'une personne proche ? d'inconnus mais toujours personnalisé.
   Sur des thèmes en particulier, des gens enregistrent leurs voix et partagent leurs méditations. Ou alors faire un medley à partir 
   de contributions variées => polyphonie de voix qui lisent un texte, leur souffle enregistrés.
+
+à mélanger dans une méditation / relaxation qui me ressemble vraiment:
+- l'insulte
+- le souffle profond
+- l'acitivité mentale qu'on amène au rythme du souffle mais qu'on essaie pas d'ignorer. Voir on se concentr encore plus dessus
+- la sensation de laisser des fluides entre et sortir en plusieurs endroits du corps 
+
+- `Zen of pure physical effort` / `Violence mediaded meditation`: séance muscu intense / haka intense, courir à la cool pieds nus
+
+
