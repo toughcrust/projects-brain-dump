@@ -1,3 +1,7 @@
+https://usbeketrica.com/article/pierre-ducrozet-dans-la-tete-des-nouveaux-maitres-du-monde
+
+https://usbeketrica.com/article/blade-runner-2049-les-gens-qui-ont-aime-le-premier-vont-adorer
+
 boule argile dans bouteille ? un ptit sac en coton à faire secouer ?
 
 \#\#\#\# Boulot
