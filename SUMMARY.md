@@ -15,4 +15,5 @@
 * [Doodling: what people say](doodling-what-people-say.md)
 * [Crypto monnaie](crypto-monnaie.md)
 * [santé: parcours](sante-parcours.md)
+* Burning man
 
