@@ -80,6 +80,10 @@ Plus dans la geekerie:
 
 * un truc qui m'a toujours tourné en tête: comment faire en sorte de bosser n'importe où: pouvoir écrire un doc à la con en faisant une rando
 
+sinon des réus utile:
+chacun dit à l'avance ce qui sortira de la réunion: décisions prises et actions
+
+
 * Conversational UI for computer-aided human communication: un mode d'échange sans IA ou l'info est faite pour faciliter le traitement, expliciter mais ou l'humain est au centre. Un bot qui est là pour faire vivre une conversation, la relancer, etc ... \(s'inspirer des mails des amoas avec whatmille trucs à faire\)
 
 \# TODO or not TODO
