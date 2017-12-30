@@ -1,7 +1,7 @@
 # Summary
 
 * [Introduction](README.md)
-* [First Chapter](chapter1.md)
+* [Backlog](chapter1.md)
 * [Sources d'inspiration](sources-dinspiration.md)
 * Trucs qui m'ont marqué
 * Micro fermes
