@@ -18,4 +18,6 @@ méditation "auto / personnalisée":
 
 - `Zen of pure physical effort` / `Violence mediaded meditation`: séance muscu intense / haka intense, courir à la cool pieds nus
 
+Enregistrer avec ma voix un exercice de relaxation profonde: "place ton doigt entre tes deux yeux, masse fermement. 8 tours. suis ma respiration. Avec chaque main, presse les creux à l'arrière de la nuque [...] Chant / lecture de poème type "do not go gentle" [...] Maintenant, j'aimerais que nous posions une question à ton inconscient: montre nous notre plus grande peur."
+
 
