@@ -1,21 +1,20 @@
-**SHEPERE** (police épaisse VICE / années 90 3 couleurs magenta, jaune, cyan en décalé)
+### Noms
 
-Alt names: **STDIO design**, Holy shift !
+![](/assets/sheper.png)
 
-Alt: mottos
-Shit-fed warmth
-Ingénierie ASCII artistique
-Experience un-designed. 
-Sink deep to think less.
-Tinker thanks
+^-- Inspis: années 90, VICE, skate, 3 couleurs: magenta, jaune, cyan en décalé
 
- The love bits, "Détendez votre zone de confort"
+Holy shift !
 
-Monday motto
+### Mottos
+Dissolution gurus / Sublimation seekers / Unexpected warriors
+The love bits
+Nos désirs font des hordes
+Détendez votre zone de confort
+Not leading the future of bullshit
+La maïeutique du cool
 
-Maïeutique de coolitude pour se sortir de la merde et faire pousser dessus
-
-**méthodes**
+### Méthodes
 crap cutting / TGIF joy bubbling / terrestrial space station / over design / convention flipping / weirdo connection
 
 A ajouter: 
@@ -23,3 +22,7 @@ A ajouter:
 - faire du super réel: tout en restant dans le mock, le draft prendre des éléments concrets: pas de lorem ipsum, un vrai texte (sincère et tout). Pas de personas sortis de ma tête: des photos de gens dans la rue et une interview => Idée de se challenger sur des trucs qu'on prend pour évidents.Trouver un équilibre entre aller vite et avoir ces "petits détails" réels
 - le **ré**confort: c'est le fait de revenir dans le confort qui est kiffant. D'où l'idée de se mettre seul dans des difficultés. pour se réconforter
 - Cette sensation unique de chaleur / joie enfantine / profondeur de pensée / prolongement de soi que j'ai ressenti avec cette personne.
+
+### Outils
+
+Sites web minimalistes design et pérennes (accessibilité)

@@ -2,43 +2,12 @@ https://usbeketrica.com/article/pierre-ducrozet-dans-la-tete-des-nouveaux-maitre
 
 https://usbeketrica.com/article/blade-runner-2049-les-gens-qui-ont-aime-le-premier-vont-adorer
 
-boule argile dans bouteille ? un ptit sac en coton à faire secouer ?
-
-\#\#\#\# Boulot
-
-Idée boulot très pragmatique:
-
-Sites web minimalistes design et pérennes via accessibilité
-
-=&gt; design studio tout terrain à tendance minimalistico chépakoi:
-
-web / organisation / vie pratique / design
-
-ché père \| chez pair \| shéperd \| **sheper**
-
-![](/assets/sheper.png)
-
-^-- Inspis: années 90, VICE, skate
 
 =&gt; **Relire plus de VICE d'ailleurs** =&gt; à mettre dans une section "source de lectures / info cools" comme la chaîne youtube gestaz machin là ...
 
-Not leading the future of bullshit
 
-JDM: perché, cheaper, sheperd, shaper, ville en albanie &lt;3
-
-**Nom et slogan**
-
-Nues & mues
-
-Dissolution gurus  
-Sublimation seekers  
-Unhoped for warriors
-
-Nos désirs font des hordes
 
 Projet: "The terrestrial space station"
-
-boire mon urine avec de l'argile
 
 faire de la culture à partir de mon caca
 
