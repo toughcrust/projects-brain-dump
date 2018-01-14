@@ -151,8 +151,6 @@ Tshirt \[[http://fyjc.bigcartel.com/product/inception\]\(http://fyjc.bigcartel.c
 
 \[[http://pwn.lu/sf-fantasy-books.jpg\]\(http://pwn.lu/sf-fantasy-books.jpg\](http://pwn.lu/sf-fantasy-books.jpg]%28http://pwn.lu/sf-fantasy-books.jpg%29\)
 
-\[[https://www.amazon.com/Pencil-Me-Business-Drawing-People/dp/0996006036/ref=as\\_li\\_ss\\_tl?ie=UTF8&qid=1506525482&sr=8-1&keywords=Pencil+Me+In&linkCode=sl1&tag=eleganthack&linkId=ba008220c67821b84f823c09c3d48e2a\]\(https://www.amazon.com/Pencil-Me-Business-Drawing-People/dp/0996006036/ref=as\_li\_ss\_tl?ie=UTF8&qid=1506525482&sr=8-1&keywords=Pencil+Me+In&linkCode=sl1&tag=eleganthack&linkId=ba008220c67821b84f823c09c3d48e2a\](https://www.amazon.com/Pencil-Me-Business-Drawing-People/dp/0996006036/ref=as_li_ss_tl?ie=UTF8&qid=1506525482&sr=8-1&keywords=Pencil+Me+In&linkCode=sl1&tag=eleganthack&linkId=ba008220c67821b84f823c09c3d48e2a]%28https://www.amazon.com/Pencil-Me-Business-Drawing-People/dp/0996006036/ref=as_li_ss_tl?ie=UTF8&qid=1506525482&sr=8-1&keywords=Pencil+Me+In&linkCode=sl1&tag=eleganthack&linkId=ba008220c67821b84f823c09c3d48e2a%29\)
-
 \#\# Lecture
 
 SF tonio:
@@ -191,25 +189,11 @@ Histoire:
 
 \* A Thousand Years of Nonlinear History
 
-Paleo-ish:
 
-\* Man & food, Matthieu Paley
-
-Société / politique:
-
-\* \[[https://www.amazon.fr/Leisure-Basis-Culture-Josef-Pieper/dp/0865972109\]\(https://www.amazon.fr/Leisure-Basis-Culture-Josef-Pieper/dp/0865972109\](https://www.amazon.fr/Leisure-Basis-Culture-Josef-Pieper/dp/0865972109]%28https://www.amazon.fr/Leisure-Basis-Culture-Josef-Pieper/dp/0865972109%29\)
-
-\* Tractatus theologico-politicus de Spinoza
-
-\* \[[https://www.amazon.com/Why-Nations-Fail-Origins-Prosperity/dp/0307719227\]\(https://www.amazon.com/Why-Nations-Fail-Origins-Prosperity/dp/0307719227\](https://www.amazon.com/Why-Nations-Fail-Origins-Prosperity/dp/0307719227]%28https://www.amazon.com/Why-Nations-Fail-Origins-Prosperity/dp/0307719227%29\)
-
-\* \[[https://www.amazon.fr/Écopunk-punks-animale-écologie-radicale/dp/2369350369\]\(https://www.amazon.fr/Écopunk-punks-animale-écologie-radicale/dp/2369350369\](https://www.amazon.fr/Écopunk-punks-animale-écologie-radicale/dp/2369350369]%28https://www.amazon.fr/Écopunk-punks-animale-écologie-radicale/dp/2369350369%29\)
 
 \* \[[https://eowilsonfoundation.org/half-earth-our-planet-s-fight-for-life/\]\(https://eowilsonfoundation.org/half-earth-our-planet-s-fight-for-life/\](https://eowilsonfoundation.org/half-earth-our-planet-s-fight-for-life/]%28https://eowilsonfoundation.org/half-earth-our-planet-s-fight-for-life/%29\)
 
 Design:
-
-\* \[[https://www.amazon.com/Universal-Principles-Design-Revised-Updated/dp/1592535879/\]\(https://www.amazon.com/Universal-Principles-Design-Revised-Updated/dp/1592535879/\](https://www.amazon.com/Universal-Principles-Design-Revised-Updated/dp/1592535879/]%28https://www.amazon.com/Universal-Principles-Design-Revised-Updated/dp/1592535879/%29\)
 
 \* \[[https://design.blog/\]\(https://design.blog/\](https://design.blog/]%28https://design.blog/%29%29 %28design et inclusion\\)
 
@@ -366,8 +350,6 @@ The subtile art of not giving a fuck.
 chorale pop: \[[https://www.lumiiq.com/uniisson/?gclid=CjwKEAjws-LKBRDCk9v6\\_cnBgjISJAADkzXeT4hEOIolXkbKxVm\\_xcdrTO621DdYaeFRldObz5btcBoCnJPw\\_wcB\\#infospratiques\]\(https://www.lumiiq.com/uniisson/?gclid=CjwKEAjws-LKBRDCk9v6\_cnBgjISJAADkzXeT4hEOIolXkbKxVm\_xcdrTO621DdYaeFRldObz5btcBoCnJPw\_wcB\#infospratiques\](https://www.lumiiq.com/uniisson/?gclid=CjwKEAjws-LKBRDCk9v6_cnBgjISJAADkzXeT4hEOIolXkbKxVm_xcdrTO621DdYaeFRldObz5btcBoCnJPw_wcB#infospratiques]%28https://www.lumiiq.com/uniisson/?gclid=CjwKEAjws-LKBRDCk9v6_cnBgjISJAADkzXeT4hEOIolXkbKxVm_xcdrTO621DdYaeFRldObz5btcBoCnJPw_wcB#infospratiques%29\)
 
 La cellule comme être conscient =&gt; passage à l'échelle jusqu'à l'Homme. + lien avec la musique ?
-
-\[[https://www.amazon.com/Clean-Money-Revolution-Reinventing-Capitalism/dp/0865718393\]\(https://www.amazon.com/Clean-Money-Revolution-Reinventing-Capitalism/dp/0865718393\](https://www.amazon.com/Clean-Money-Revolution-Reinventing-Capitalism/dp/0865718393]%28https://www.amazon.com/Clean-Money-Revolution-Reinventing-Capitalism/dp/0865718393%29\)
 
 dans les lectures cools que j'ai eues ajouter Silo et Spin
 
