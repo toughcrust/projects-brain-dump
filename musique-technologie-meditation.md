@@ -20,4 +20,7 @@ méditation "auto / personnalisée":
 
 Enregistrer avec ma voix un exercice de relaxation profonde: "place ton doigt entre tes deux yeux, masse fermement. 8 tours. suis ma respiration. Avec chaque main, presse les creux à l'arrière de la nuque [...] Chant / lecture de poème type "do not go gentle" [...] Maintenant, j'aimerais que nous posions une question à ton inconscient: montre nous notre plus grande peur."
 
+Idée d'application:
+Une image du corps sur laquelle on met les parties du corps douloureuse. Choix d'une musique qui nous parle, d'une autre qui exacerbe la douleur. Petit speech d'1 minute à enrgistrer => qqun nous prépare une méditation guidée personnalisée.
+
 
