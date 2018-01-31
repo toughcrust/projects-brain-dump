@@ -6,7 +6,7 @@
 * Trucs qui m'ont marqué
 * Micro fermes
 * [Studio design](studio-design.md)
-* Mega \(road\) trip
+* [Mega \(road\) trip](mega-road-trip.md)
 * [Signes des astres](signes-des-astres.md)
 * [Manger](manger.md)
 * [Idées pas ouf que j'ai besoin d'archiver](idees-pas-ouf-que-jai-besoin-darchiver.md)
@@ -18,4 +18,5 @@
 * [Burning man](burning-man.md)
 * [Expériences santé](experiences-sante.md)
 * [Coopérative](cooperative.md)
+* [Ukulele](ukulele.md)
 
