@@ -4,7 +4,16 @@
 
 ^-- Inspis: années 90, VICE, skate, 3 couleurs: magenta, jaune, cyan en décalé
 
-Holy shift !
+**Holy shift !**
+
+Do not go gentle Into that bullshit 
+
+Mon problème avec le design:
+j'aime pas une techique en particulier. Ce n'est qu'un moyen pour moi et j'aurais besoin d'en maîtriser une multitude alors que la faculté que je préfère utiliser c'est la simplification, le raccourci, le détournement. C'est pour ça que j'ai du mal à me fixer, en plus de mes problèmes de concentration
+
+**upside done**
+se mettre des contraintes contre intuitives pour s'inspirer, créer , changer
+Retourner les problèmes pour les voir sous un autre angle, pour se rendre compte de ce qu'on veut pas et donc de ce qu'on veut
 
 ### Mottos
 Dissolution gurus / Sublimation seekers / Unexpected warriors
