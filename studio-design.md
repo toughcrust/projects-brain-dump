@@ -23,6 +23,9 @@ Détendez votre zone de confort
 Not leading the future of bullshit
 La maïeutique du cool
 
+Weed, rituals, running. We pick drugs that dont give us hemorroids.
+
+
 ### Méthodes
 crap cutting / TGIF joy bubbling / terrestrial space station / over design / convention flipping / weirdo connection
 
