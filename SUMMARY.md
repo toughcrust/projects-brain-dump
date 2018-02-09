@@ -4,7 +4,7 @@
 * [Backlog](chapter1.md)
 * [Inspi / WANT / à creuser](sources-dinspiration.md)
 * [Trucs qui m'ont marqué](trucs-qui-mont-marque.md)
-* Micro fermes
+* [Micro fermes](micro-fermes.md)
 * [Studio design](studio-design.md)
 * [Mega \(road\) trip](mega-road-trip.md)
 * [Trucs ésotériques](signes-des-astres.md)
