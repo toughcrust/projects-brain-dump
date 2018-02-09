@@ -2,6 +2,11 @@
 
 Se couper les cheveux moi-même
 
+### Santé 
+
+- boule argile dans bouteille ? un ptit sac en coton à faire secouer ?
+- boire mon urine (avec de l'argile ?)
+
 ### Inspiration
 
 Tiny house ?

@@ -35,3 +35,9 @@ A ajouter:
 ### Outils
 
 Sites web minimalistes design et pérennes (accessibilité)
+
+
+Des mots chouette:
+- proposer 
+- surprendre
+- désapprendre 

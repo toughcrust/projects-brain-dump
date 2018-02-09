@@ -12,3 +12,7 @@ En fait ce qui est essentiel: pour ce qui touche à la nourriture, au logement, 
 En fait il faut pouvoir acheter ce qu'on a besoin quoi qu'il arrive ! vivre à crédit pour les choses essentielles à la survie => rééquilibrer les comptes après.
 
 Some say money does not buy happiness, What I'm sure of it should not steal others' basic right to survive
+
+LE pb du capitalisme, de l'absence de solidarité, des guerres, etc..L'attrait et la peur de la domination. Pour dépasser ça Il faut l'équivalent de:
+Tu te laisses tomber en arrière et tes collègues te rattrapent.
+=> Créer des expériences, des rites de passage où on connaît l'opulence et la misère, la solidarité et la compétition féroce ?
