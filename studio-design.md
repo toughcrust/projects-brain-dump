@@ -1,3 +1,9 @@
+**Tests d'intrusion UX**
+Est-ce que ton service / produit est vraiment nécessaire / cool ?
+Comment je peux m'en passer, le hacker, en faire une copie cheap, faire plus marrant, combiner avec un autre besoin que j'ai ?
+Si c'est vraiment nécessaire et pas fun de base (la paie), est-ce que je peux pas en fait en faire une activité cool ? **revenir au coeur de ce qui me fait kiffer
+**, de pourquoi j'ai accepté de me laisser entraîner dans ce boulot de RH plutôt qu'une autre prison. Reprendre le flambeau et me réinventer en, paradoxalement, revenant à mes fondements.
+
 ### Noms
 
 ![](/assets/sheper.png)
