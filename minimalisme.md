@@ -9,6 +9,8 @@ Se couper les cheveux moi-même
 
 ### Inspiration
 
+Dropping things (useless object, project, worry) is as good as getting something new and useful
+
 Tiny house ?
 
 Nothing ever goes away until it has taught us what we need to know.
