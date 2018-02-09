@@ -1,3 +1,14 @@
+https://www.truthcontrol.com/articles/old-souls-guide-life-universe-and-everything
+ 
+---
+In fact, Aquarius and the 8th house have a lot to tell each other, and can, if integrated, represent the core strength of emotional intelligence.
+
+Typically, the North Node lessons here have to do with integrating one’s darker nature with the way you live your life out where everyone can see it. This automatically places an emphasis on hypocrisy, since people who are uncomfortable with the 8/2 axis, its physicality, emotional needs and an overall inability to explain its actions coherently or ‘rationally’ tend to lie about their deeper feelings, pretending they’re ‘fine.’ The raw instinctual nature of the 8/2 axis tends to stand out for Aquarius North Node, which is why I expect Leo South Node to dominate, since it’s so often easier for the individual to express that combination than it is to express Aquarius in the 8th.
+
+The purpose of the lifetime then might be described as bringing emotions to the surface so that they can be understood rationally. If this native doesn’t become comfortable with expressing his 8th house reality, it’s going to block his overall life purpose. So everything depends on the rest of the chart; does it support water or air? Is the individual going to ‘bury’ his or her 8th house nature, or is s/he going to take the hard road toward self-awareness?
+
+---
+
 https://alltotems.com/spirit-animals/spider-symbolism-meaning/
 
 ### Astro fuck yourself

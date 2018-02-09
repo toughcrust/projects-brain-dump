@@ -7,7 +7,7 @@
 * Micro fermes
 * [Studio design](studio-design.md)
 * [Mega \(road\) trip](mega-road-trip.md)
-* [Astrologie et trucs ésotériques](signes-des-astres.md)
+* [Trucs ésotériques](signes-des-astres.md)
 * [Son / techno / méditation](musique-technologie-meditation.md)
 * [Doodling: what people say](doodling-what-people-say.md)
 * [Survivre et s'épanouir dans le travail](crypto-monnaie.md)
