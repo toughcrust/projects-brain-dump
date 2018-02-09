@@ -3,7 +3,7 @@
 * [Introduction](README.md)
 * [Backlog](chapter1.md)
 * [Sources d'inspiration](sources-dinspiration.md)
-* Trucs qui m'ont marqué
+* [Trucs qui m'ont marqué](trucs-qui-mont-marque.md)
 * Micro fermes
 * [Studio design](studio-design.md)
 * [Mega \(road\) trip](mega-road-trip.md)

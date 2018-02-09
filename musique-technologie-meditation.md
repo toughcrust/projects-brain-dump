@@ -1,5 +1,7 @@
 https://www.google.fr/amp/s/timothytrespas.wordpress.com/2015/05/26/frequencies-sacred-harmonic-geometry-understanding-resonance-cymatics-and-the-chakras/amp/
 
+https://theconversation.com/les-ondes-sonores-nous-influencent-elles-vraiment-90502?utm_medium=email&utm_campaign=La%20lettre%20de%20The%20Conversation%20France%20du%208%20fvrier%202018%20-%2094308072&utm_content=La%20lettre%20de%20The%20Conversation%20France%20du%208%20fvrier%202018%20-%2094308072+CID_c591f323f247c42f255bc39909b346a2&utm_source=campaign_monitor_fr&utm_term=Les%20ondes%20sonores%20nous%20influencent-elles%20%20Vraiment
+
 Méditation "auto-générée" préparée en fonction des goûts musicaux (en faisant écouter des morceuax, en demandant des playlists et en demandant un feedback: "qu'est-ce qui te fait vibrer là dedans ?"). Aussi: demander à des proches de lire des passages significatifs, à la brain pickings, (choisis auparavant ?)
 
 méditation "auto / personnalisée":
