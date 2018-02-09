@@ -1,4 +1,12 @@
+Past life régression ou spirit quest: même chose! En fait faire le calme pour poser une question à son subconscient.
+
+Chat bot pour générer des questions ?
+
+Autre idée appliquer des vibrations pour aider à la relaxation physique 
+
 https://www.google.fr/amp/s/timothytrespas.wordpress.com/2015/05/26/frequencies-sacred-harmonic-geometry-understanding-resonance-cymatics-and-the-chakras/amp/
+
+https://thenextweb.com/insights/2018/01/22/i-trained-an-ai-to-copy-my-voice-and-scared-myself-silly/
 
 https://theconversation.com/les-ondes-sonores-nous-influencent-elles-vraiment-90502?utm_medium=email&utm_campaign=La%20lettre%20de%20The%20Conversation%20France%20du%208%20fvrier%202018%20-%2094308072&utm_content=La%20lettre%20de%20The%20Conversation%20France%20du%208%20fvrier%202018%20-%2094308072+CID_c591f323f247c42f255bc39909b346a2&utm_source=campaign_monitor_fr&utm_term=Les%20ondes%20sonores%20nous%20influencent-elles%20%20Vraiment
 

@@ -11,7 +11,7 @@
 * [Manger](manger.md)
 * [Idées pas ouf que j'ai besoin d'archiver](idees-pas-ouf-que-jai-besoin-darchiver.md)
 * [Logement](logement.md)
-* [Musique / technologie / méditation](musique-technologie-meditation.md)
+* [Son / techno / méditation](musique-technologie-meditation.md)
 * [Doodling: what people say](doodling-what-people-say.md)
 * [Crypto monnaie](crypto-monnaie.md)
 * [santé: parcours](sante-parcours.md)
@@ -19,4 +19,5 @@
 * [Expériences santé](experiences-sante.md)
 * [Coopérative](cooperative.md)
 * [Ukulele](ukulele.md)
+* [Psy: quoi et comment](psy-quoi-et-comment.md)
 
