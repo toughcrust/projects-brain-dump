@@ -1,3 +1,5 @@
+http://www.wakingtimes.com/2014/05/06/opening-seven-sacred-chakras/
+
 Past life régression ou spirit quest: même chose! En fait faire le calme pour poser une question à son subconscient.
 
 Chat bot pour générer des questions ?
