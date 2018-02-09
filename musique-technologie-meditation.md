@@ -1,3 +1,6 @@
+SE RECENTRER, PRENDRE DU TEMPS POUR SOI
+=> BULLSHIT ! ni l'un ni l'autre je ne sais ce que ça veut dire ! C'est des mots lancés au lance pierre pour décrire le fait de ressentir un plaisir calme.
+
 http://www.wakingtimes.com/2014/05/06/opening-seven-sacred-chakras/
 
 Past life régression ou spirit quest: même chose! En fait faire le calme pour poser une question à son subconscient.
