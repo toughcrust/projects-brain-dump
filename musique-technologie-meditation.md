@@ -1,3 +1,5 @@
+When i look at à forest and picture it as equal standing beings, I Feel empowered, connected.
+
 SE RECENTRER, PRENDRE DU TEMPS POUR SOI
 => BULLSHIT ! ni l'un ni l'autre je ne sais ce que ça veut dire ! C'est des mots lancés au lance pierre pour décrire le fait de ressentir un plaisir calme.
 
