@@ -4,3 +4,4 @@ logement coopératif ?
 
 **thrill & chill** je reviens sur mon idée de salle partagée:
 bains banya / sauna, sorties courses pieds nus et baignade dans la Seine
+=> souffrir à petite dose.
