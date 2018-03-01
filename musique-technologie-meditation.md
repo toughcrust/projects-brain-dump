@@ -1,3 +1,7 @@
+Trucs cool à creuser:
+- taketina (rythme, transe)
+- chants polyphoniques corses (tellement puissant)
+
 When i look at à forest and picture it as equal standing beings, I Feel empowered, connected.
 
 SE RECENTRER, PRENDRE DU TEMPS POUR SOI
