@@ -1,3 +1,5 @@
+Tout ce qui est lié au détachement de conscience, changer de perspective, be turned upside down. Se vider et se ré-énergiser.
+
 lucid dreaming!
 
 Je veux faire un truc qui soit accessible à un moi déprimé => "PAY FORWARD" (je donne). Et qui aille vers un truc ecnore plus cool en groupe.
