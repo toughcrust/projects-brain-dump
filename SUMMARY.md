@@ -15,7 +15,7 @@
 * [Burning man](burning-man.md)
 * [Participatif](cooperative.md)
 * [Ukulele](ukulele.md)
-* [Psychologie du cool](psy-quoi-et-comment.md)
 * [Minimalisme](minimalisme.md)
 * [Raw sport](raw-sport.md)
+* [Cuisine !](cuisine.md)
 
