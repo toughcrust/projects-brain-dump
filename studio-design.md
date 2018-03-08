@@ -1,3 +1,5 @@
+https://gallery.mailchimp.com/5559a62245d86aeeefd822705/files/51325a49-67e3-4fcc-a947-2f9d90245358/Radical_Product_Toolkit_v3.0.0.pdf
+
 **Tests d'intrusion UX**
 Est-ce que ton service / produit est vraiment nécessaire / cool ?
 Comment je peux m'en passer, le hacker, en faire une copie cheap, faire plus marrant, combiner avec un autre besoin que j'ai ?
