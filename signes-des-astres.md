@@ -1,5 +1,7 @@
 http://personalityspirituality.net/articles/the-michael-teachings/reincarnation-the-35-steps/stage-5-the-old-soul/
 
+http://wn.rsarchive.org/Lectures/GA177/English/RSP1993/19171007p01.html
+
 https://www.truthcontrol.com/articles/old-souls-guide-life-universe-and-everything
  
 ---
