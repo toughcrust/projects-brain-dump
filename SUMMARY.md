@@ -17,5 +17,5 @@
 * [Ukulele](ukulele.md)
 * [Minimalisme](minimalisme.md)
 * [Raw sport](raw-sport.md)
-* [Cuisine !](cuisine.md)
+* [Cuisine ! / Manger](cuisine.md)
 
