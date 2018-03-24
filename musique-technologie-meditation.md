@@ -1,7 +1,9 @@
 Cocon d'isolation
 lucid dreaming
 
+http://www.edgemagazine.net/2014/05/three-mudras/
 https://chopra.com/articles/10-powerful-mudras-and-how-to-use-them
+https://www.aypsite.ch/lecon_108
 
 Tout ce qui est lié au détachement de conscience, changer de perspective, be turned upside down. Se vider et se ré-énergiser.
 
