@@ -52,3 +52,26 @@ Des mots chouette:
 - proposer 
 - surprendre
 - désapprendre 
+
+
+Mon paradoxe: I dream that we're all 
+
+Projet: "The terrestrial space station"
+
+
+
+=&gt; Entre pragmatisme et superflu total
+
+=&gt; \*\*Vivre ici et maintenant le défi de la conquête spatiale\*\*
+
+Que des avantages plutôt que de se préoccuper d'envoyer des fusées dans l'espace \(je vois pas en quoi aller sur une planète qui a de toutes façons moins de choses va aider de quelque sorte que ce soit ...\)
+
+Y'a une idée de jeu de rôle, de SF, de mise en situation aussi derrière, etc ...
+
+Je suis fasciné par: la profusion spontanée du végétal, survivre éthiquement aux catastrophes qui vont nous tomber sur la gueule \(à l'opposé du survivalisme, vivre en pleine nature, pas contre elle\), comprendre comment les choses fonctionnent. Mais je suis profondément un citadin.
+
+Il faut viser plus loin que l'économie circulaire et exploiter carrément la merde qu'on produit. Parce qu'on sait pertinemment qu'on atteint pas les objectifs fixés \(dans le meilleur des cas on en atteint d'autres de façon inattendu\)
+
+
+
+

@@ -1,2 +1,1 @@
-Avoir des lieux de prod (collaboratifs ?) de micro-pousses / de produits fermentés.
-En ville. Bio. En permaculture.
+Dans la ville, dans ma chambre avoir une putain de prod abondante. Idéalemnt de la végétation qui bouffe la ville, reprend sur le béton.
