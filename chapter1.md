@@ -1,3 +1,6 @@
+**WANT !**
+Understanding Comics: The Invisible Art (https://www.amazon.com/Understanding-Comics-Invisible-Scott-McCloud/dp/006097625X)
+
 **SF**
 The Dispossessed / The Left Hand of Darkness d'ursula le guin
 The giver / Gathering Blue de Lois Lowry
