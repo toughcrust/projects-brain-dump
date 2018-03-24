@@ -10,19 +10,14 @@ Redshirts (John Scalzi)
 The Goblin Emperor (Katherine Addison)
 
 **Self help**
-
-\* \[[https://fr.wikipedia.org/wiki/La\\_Philosophie\\_de\\_la\\_liberté\]\(https://fr.wikipedia.org/wiki/La\_Philosophie\_de\_la\_liberté\](https://fr.wikipedia.org/wiki/La_Philosophie_de_la_liberté]%28https://fr.wikipedia.org/wiki/La_Philosophie_de_la_liberté%29\)
-
-\* radical honesty \[[http://www.goodreads.com/book/show/551511.Radical\_Honesty\_?from\_search=true\]\(http://www.goodreads.com/book/show/551511.Radical\_Honesty\_?from\_search=true\](http://www.goodreads.com/book/show/551511.Radical_Honesty_?from_search=true]%28http://www.goodreads.com/book/show/551511.Radical_Honesty_?from_search=true%29\)
+Radical honesty
 
 **Essai**
 A Thousand Years of Nonlinear History
 
-\* \[[https://design.blog/\]\(https://design.blog/\](https://design.blog/]%28https://design.blog/%29%29 %28design et inclusion\\)
-
 \* \`Thought as a Technology\` \[[http://cognitivemedium.com/tat/index.html\]\(http://cognitivemedium.com/tat/index.html\](http://cognitivemedium.com/tat/index.html]%28http://cognitivemedium.com/tat/index.html%29\)
 
-
+**Romans**
 Faust de Goethe
 American gods
 
@@ -104,7 +99,6 @@ American gods
 
 \* Paleo Manifesto
 
-\*\*Painful \\(or boring\\) but structuring\*\*
 
 \* Perfect health diet
 
@@ -128,22 +122,4 @@ Humoristes:
 
 \* Action discrète
 
-\* Petit journal
-
-\* Amy schumer
-
-
-chorale pop: \[[https://www.lumiiq.com/uniisson/?gclid=CjwKEAjws-LKBRDCk9v6\\_cnBgjISJAADkzXeT4hEOIolXkbKxVm\\_xcdrTO621DdYaeFRldObz5btcBoCnJPw\\_wcB\\#infospratiques\]\(https://www.lumiiq.com/uniisson/?gclid=CjwKEAjws-LKBRDCk9v6\_cnBgjISJAADkzXeT4hEOIolXkbKxVm\_xcdrTO621DdYaeFRldObz5btcBoCnJPw\_wcB\#infospratiques\](https://www.lumiiq.com/uniisson/?gclid=CjwKEAjws-LKBRDCk9v6_cnBgjISJAADkzXeT4hEOIolXkbKxVm_xcdrTO621DdYaeFRldObz5btcBoCnJPw_wcB#infospratiques]%28https://www.lumiiq.com/uniisson/?gclid=CjwKEAjws-LKBRDCk9v6_cnBgjISJAADkzXeT4hEOIolXkbKxVm_xcdrTO621DdYaeFRldObz5btcBoCnJPw_wcB#infospratiques%29\)
-
-
-
-dans les lectures cools que j'ai eues ajouter Silo et Spin
-
-dans les lectures à faire: autobio de goethe avec passage sur spinoza ? les souffrances du jeune Werter
-
-
-
-[http://eat.co/chewing/](http://eat.co/chewing/) =&gt; le site complet a l'air assez chouette !
-
-
-
+Amy schumer
