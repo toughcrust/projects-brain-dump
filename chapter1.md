@@ -3,15 +3,10 @@ https://usbeketrica.com/article/pierre-ducrozet-dans-la-tete-des-nouveaux-maitre
 https://usbeketrica.com/article/blade-runner-2049-les-gens-qui-ont-aime-le-premier-vont-adorer
 
 
-=&gt; **Relire plus de VICE d'ailleurs** =&gt; à mettre dans une section "source de lectures / info cools" comme la chaîne youtube gestaz machin là ...
-
-
 
 Projet: "The terrestrial space station"
 
 faire de la culture à partir de mon caca
-
-faire un cocon d'isolation
 
 =&gt; Un truc moitié sérieux moitié ironique sur la conquête spatiale
 
@@ -45,15 +40,7 @@ Des systèmes naturels ou assimilés pour assurer une profusion du basique, de l
 
 quelque chose où à l'heure actuelle on gâche / se gâche \(Céline, je pense encore à toi, j'irai te chercherdans les flammes\).
 
-Plus dans la geekerie:
 
-* un truc qui m'a toujours tourné en tête: comment faire en sorte de bosser n'importe où: pouvoir écrire un doc à la con en faisant une rando
-
-sinon des réus utile:
-chacun dit à l'avance ce qui sortira de la réunion: décisions prises et actions
-
-
-* Conversational UI for computer-aided human communication: un mode d'échange sans IA ou l'info est faite pour faciliter le traitement, expliciter mais ou l'humain est au centre. Un bot qui est là pour faire vivre une conversation, la relancer, etc ... \(s'inspirer des mails des amoas avec whatmille trucs à faire\)
 
 \# TODO or not TODO
 
@@ -69,13 +56,9 @@ make eggshells bio available
 
 \* about shit / économie bleue: il faudrait créer des organismes qui bouffent le silicium / la pollution atmosphérique. et même ça c'est pas sans danger.
 
-\#\# Lire, LIRE, LiRe
-
 \* bouquin sur internet des objets de la nature =&gt; secret life of trees ?
 
 \* bio inspiration: regarder le bouquin du mec sur l'économie bleue: mieux qu recycler =&gt; créer. un peu comme antifragile. Ne pas consommer la vie, la sublimer
-
-\* \[ \] feu et nuit à la belle étoile \\(Vexin ?\\)
 
 \* \[ \] jouer du céline dion au uku. aussi stromae, gojira, orelsan
 
@@ -93,19 +76,9 @@ make eggshells bio available
 
 \* \[ \] stage de survie: \[[https://www.cap-adrenaline.com/stage-survie-region-parisienne-P37901.html\\#bloc-avis\]\(https://www.cap-adrenaline.com/stage-survie-region-parisienne-P37901.html\#bloc-avis\](https://www.cap-adrenaline.com/stage-survie-region-parisienne-P37901.html#bloc-avis]%28https://www.cap-adrenaline.com/stage-survie-region-parisienne-P37901.html#bloc-avis%29\) ou \[[http://www.gens-des-bois.org\]\(http://www.gens-des-bois.org\](http://www.gens-des-bois.org]%28http://www.gens-des-bois.org%29\)
 
-\* \[ \] séance ayahuasca \\(\[[https://www.facebook.com/ayahuascafrance/\]\(https://www.facebook.com/ayahuascafrance/\)\](https://www.facebook.com/ayahuascafrance/]%28https://www.facebook.com/ayahuascafrance/%29%29\)
-
 \* \[ \] tambours chamaniques: \[[http://www.neochamanisme.fr/index.php/agenda/cercle-de-tambours-fort-de-garches.html\]\(http://www.neochamanisme.fr/index.php/agenda/cercle-de-tambours-fort-de-garches.html\](http://www.neochamanisme.fr/index.php/agenda/cercle-de-tambours-fort-de-garches.html]%28http://www.neochamanisme.fr/index.php/agenda/cercle-de-tambours-fort-de-garches.html%29\)
 
 \* \[ \] tour à vélo: \[[http://www.tourdenatur.net/sites/tdn.in-berlin.de/files/tdn-flyer\\_2017\\_web.pdf\]\(http://www.tourdenatur.net/sites/tdn.in-berlin.de/files/tdn-flyer\_2017\_web.pdf\](http://www.tourdenatur.net/sites/tdn.in-berlin.de/files/tdn-flyer_2017_web.pdf]%28http://www.tourdenatur.net/sites/tdn.in-berlin.de/files/tdn-flyer_2017_web.pdf%29\)
-
-\* \[ \] stage permaculture
-
-\* \[ \] tour yvelines à vélo: \[[http://www.balade-yvelines.fr/Rando-a-velo/rando-velo-libre-accompagnee-yvelines/Rando-velo-Yvelines\]\(http://www.balade-yvelines.fr/Rando-a-velo/rando-velo-libre-accompagnee-yvelines/Rando-velo-Yvelines\](http://www.balade-yvelines.fr/Rando-a-velo/rando-velo-libre-accompagnee-yvelines/Rando-velo-Yvelines]%28http://www.balade-yvelines.fr/Rando-a-velo/rando-velo-libre-accompagnee-yvelines/Rando-velo-Yvelines%29\)
-
-\* \[ \] Expérimenter la peur que jeprouverait sans langage et bagage culturelle, l'effervescence des sens si j'étais un nouveau né, la vision différente du temps en étant aborigène...
-
-\* \[ \] respiration holotropique \[[http://holospi.blogspot.fr/p/ateliers-respiration-holotropique.html\]\(http://holospi.blogspot.fr/p/ateliers-respiration-holotropique.html\](http://holospi.blogspot.fr/p/ateliers-respiration-holotropique.html]%28http://holospi.blogspot.fr/p/ateliers-respiration-holotropique.html%29\)
 
 Serious business:
 
@@ -113,37 +86,11 @@ Serious business:
 
 \* habitat co-géré: \[[http://clip.ouvaton.org/blog/\]\(http://clip.ouvaton.org/blog/\](http://clip.ouvaton.org/blog/]%28http://clip.ouvaton.org/blog/%29\)
 
-Idées un peu random autour de \*\*musique / méditation / biofeedback\*\*:
 
-\* Comment laisser des danseurs créer de la musique avec laquelle ils soient en phase ? sans besoin d'apprendre. Créer une transe collective, une expérience collaborative dans la sueur et l'impulsion.
 
-\* Auto-méditation: se faire une méditation guidée de sa propre voix: enfin construire un vrai dialogue avec soi \\(de la même manière qu'écrire aide à construire la pensée, accorder parole et corps\\)
 
-\* chants religieux + tambours chamaniques \\(ex Hildegard von Bingen \[[https://www.youtube.com/watch?v=Ei88J4lERbk\]\(https://www.youtube.com/watch?v=Ei88J4lERbk\](https://www.youtube.com/watch?v=Ei88J4lERbk]%28https://www.youtube.com/watch?v=Ei88J4lERbk%29%29 + [[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29]%28[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29]%28[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29%29]%28[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29%29\)\]\([https://www.youtube.com/watch?v=BkzA\_u9smXU&t=311s\]\(https://www.youtube.com/watch?v=BkzA\_u9smXU&t=311s\)\)\)\)\)\](https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29%29%29%29\)\). Ajouter des sons binauraux par dessus qui sont modulés en fonction du rythme cardiaque et / ou de la musique elle même
 
-\* un peu comme avant: mettre des percussions et moduler des sons binauraux sur des chants grégoriens. Utiliser l'API DOM audio: \[[https://developer.mozilla.org/fr/docs/Web/API/Web\\_Audio\\_API\]\(https://developer.mozilla.org/fr/docs/Web/API/Web\_Audio\_API\](https://developer.mozilla.org/fr/docs/Web/API/Web_Audio_API]%28https://developer.mozilla.org/fr/docs/Web/API/Web_Audio_API%29\). Avec \[[https://alemangui.github.io/pizzicato/\]\(https://alemangui.github.io/pizzicato/\](https://alemangui.github.io/pizzicato/]%28https://alemangui.github.io/pizzicato/%29\) ?
 
-Sur mon projet flou méditation + musique:
-
-parler, crier, s'exprimer =&gt; amplifier \\(corriger ?\\) ce son pour le retransmettre au corps \\(au coeur et vice versa ?\\)
-
-l'acoustique =&gt; celle des lieux sacrés
-
-le mouvement et la musique \[[https://www.youtube.com/watch?v=Hb2u60AXvs0\]\(https://www.youtube.com/watch?v=Hb2u60AXvs0\](https://www.youtube.com/watch?v=Hb2u60AXvs0]%28https://www.youtube.com/watch?v=Hb2u60AXvs0%29%29 %28ne manque que la parole%29... Remplacer la danse soufi par le combat %28et crier ?\\)
-
-un allongé avec un didgeridoo le long du corps. L'autre en joue \\(et celui qui est allongé doit reproduire les notes\\)
-
-sonologie =&gt; les mecs qui chantent dans une église = &lt;3 !! en lien avec explo urbaine mais avec villages. Mouvement de spiritualité athée ?
-
-jouer des harmoniques, les reproduire, noter celles qui résonnent particulièrement
-
-faire une méditation avec un synthétiseur de voix \\(API JS\\) de mes propres phrases.
-
-\*\*Burn man, burn\*\*
-
-L'exotisme me brûle de façon positive: il transforme / transcende. J'ai besoin d'un burning man ici et maintenant.
-
-J'en ai marre de niquer la planète, prendre des pays pour des zoos et dépayser ma détresse. Je veux créer la vie ici.
 
 Tshirt \[[http://fyjc.bigcartel.com/product/inception\]\(http://fyjc.bigcartel.com/product/inception\](http://fyjc.bigcartel.com/product/inception]%28http://fyjc.bigcartel.com/product/inception%29%29 %28Obama Chirac, smooth pimping, suave gangsterism\\)
 
@@ -389,17 +336,6 @@ si j'écoute ma bouche, j'ai un peu soif, je voudrais un peu de choco et d'une p
 
 [http://eat.co/chewing/](http://eat.co/chewing/) =&gt; le site complet a l'air assez chouette !
 
-Ma super recette d'aujourd'hui:
-
-* graines germées
-
-* h. olive + h. lin
-
-* sauce tamari
-
-* vinaigre de cidre
-
-* levure de bière
 
 C'était satisfaisant comme pain fromage confiote, en juste beaucoup plus léger à avaler.
 
@@ -411,43 +347,7 @@ culture de micro organismes \(levure, algues, champis, insectes\) à base d'argi
 
 Assainissement d'eau ?
 
-=&gt; Voir avec asso de culture hydroponique aux grands voisins ?
 
 idéalement: épluchures + coquilles d'oeufs \(+ urine ?, + argile ?\) =&gt; micro culture de transformation =&gt; KEYWORD: edible compost !
 
-### MONPOTO
-
-Idées essentielles:
-
-- 2 équipes d'au mois deux qui se connaissent
-
-- Faire réagir sur des situations marrantes,  communes, insolites ouvertes =&gt; faire parler sur ses potes
-
-- On distribue des cartes "Balance \(=dossier\)" et "Wingman" selon ce que les gens racontent
-
-- A l'issue d'un tour, chacun propose un date entre deux autres \(thème, lieux, temporalité tirées au sort ? ou laisser au choix ? probablment mieux de faire TRES simple. limite jouable sans jeu de carte\). Cette fois ci on gagne des points "Cupidon"
-
-
-
-En fait c'est cool si ça reste centré sur le "pote / wingman" et pas sur les gens à faire rencontrer. C'est l'intention, la générosité sur laquelle on veut se focaliser !
-
-Et donc à l'issue d'un tour on est content / on a gagné si on a un max de Dossiers / Wingman / Entremetteur.
-
-
-
-A la limite l'entremetteur devient subtilement celui qui est mis en valeur.
-
-
-
-* faire une section pour travailler sur mon orga:
-
-Gmail: les messages à traiter
-
-Trello: les actions à traiter
-
-Un gitbook de philosophie de vie
-
-Un gitbook de sujets précis que j'ai envie d'approfondir
-
-Sur papier ou sublime text ou dans des mails avec un objet xxx: les idées notées à l'arrache quand elles me viennent
 

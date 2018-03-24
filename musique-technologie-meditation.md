@@ -56,4 +56,26 @@ Enregistrer avec ma voix un exercice de relaxation profonde: "place ton doigt en
 Idée d'application:
 Une image du corps sur laquelle on met les parties du corps douloureuse. Choix d'une musique qui nous parle, d'une autre qui exacerbe la douleur. Petit speech d'1 minute à enrgistrer => qqun nous prépare une méditation guidée personnalisée.
 
+\* Comment laisser des danseurs créer de la musique avec laquelle ils soient en phase ? sans besoin d'apprendre. Créer une transe collective, une expérience collaborative dans la sueur et l'impulsion.
+
+\* Auto-méditation: se faire une méditation guidée de sa propre voix: enfin construire un vrai dialogue avec soi \\(de la même manière qu'écrire aide à construire la pensée, accorder parole et corps\\)
+
+\* chants religieux + tambours chamaniques \\(ex Hildegard von Bingen \[[https://www.youtube.com/watch?v=Ei88J4lERbk\]\(https://www.youtube.com/watch?v=Ei88J4lERbk\](https://www.youtube.com/watch?v=Ei88J4lERbk]%28https://www.youtube.com/watch?v=Ei88J4lERbk%29%29 + [[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29]%28[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29]%28[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29%29]%28[https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29%29\)\]\([https://www.youtube.com/watch?v=BkzA\_u9smXU&t=311s\]\(https://www.youtube.com/watch?v=BkzA\_u9smXU&t=311s\)\)\)\)\)\](https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s]%28https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s%29%29%29%29%29\)\). Ajouter des sons binauraux par dessus qui sont modulés en fonction du rythme cardiaque et / ou de la musique elle même
+
+\* un peu comme avant: mettre des percussions et moduler des sons binauraux sur des chants grégoriens. Utiliser l'API DOM audio: \[[https://developer.mozilla.org/fr/docs/Web/API/Web\\_Audio\\_API\]\(https://developer.mozilla.org/fr/docs/Web/API/Web\_Audio\_API\](https://developer.mozilla.org/fr/docs/Web/API/Web_Audio_API]%28https://developer.mozilla.org/fr/docs/Web/API/Web_Audio_API%29\). Avec \[[https://alemangui.github.io/pizzicato/\]\(https://alemangui.github.io/pizzicato/\](https://alemangui.github.io/pizzicato/]%28https://alemangui.github.io/pizzicato/%29\) ?
+
+Sur mon projet flou méditation + musique:
+
+parler, crier, s'exprimer =&gt; amplifier \\(corriger ?\\) ce son pour le retransmettre au corps \\(au coeur et vice versa ?\\)
+
+l'acoustique =&gt; celle des lieux sacrés
+
+le mouvement et la musique \[[https://www.youtube.com/watch?v=Hb2u60AXvs0\]\(https://www.youtube.com/watch?v=Hb2u60AXvs0\](https://www.youtube.com/watch?v=Hb2u60AXvs0]%28https://www.youtube.com/watch?v=Hb2u60AXvs0%29%29 %28ne manque que la parole%29... Remplacer la danse soufi par le combat %28et crier ?\\)
+
+un allongé avec un didgeridoo le long du corps. L'autre en joue \\(et celui qui est allongé doit reproduire les notes\\)
+
+
+
+
+
 
