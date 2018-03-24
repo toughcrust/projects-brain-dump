@@ -1,65 +1,27 @@
-https://usbeketrica.com/article/pierre-ducrozet-dans-la-tete-des-nouveaux-maitres-du-monde
+**SF**
+The Dispossessed / The Left Hand of Darkness d'ursula le guin
+The giver / Gathering Blue de Lois Lowry
+Le passe miroir, Christelle Dabos
+Uprooted, Naomi Novik
+Redshirts (John Scalzi)
+The Goblin Emperor (Katherine Addison)
 
-https://usbeketrica.com/article/blade-runner-2049-les-gens-qui-ont-aime-le-premier-vont-adorer
-
-
-
-
-\* \[ \] intuitive singing \[[https://www.youtube.com/watch?v=C8CRedGz9qQ\]\(https://www.youtube.com/watch?v=C8CRedGz9qQ\](https://www.youtube.com/watch?v=C8CRedGz9qQ]%28https://www.youtube.com/watch?v=C8CRedGz9qQ%29\)
-
-
-
-\[[http://pwn.lu/sf-fantasy-books.jpg\]\(http://pwn.lu/sf-fantasy-books.jpg\](http://pwn.lu/sf-fantasy-books.jpg]%28http://pwn.lu/sf-fantasy-books.jpg%29\)
-
-\#\# Lecture
-
-SF tonio:
-
-\* The Dispossessed / The Left Hand of Darkness d'ursula le guin
-
-\* The giver / Gathering Blue de Lois Lowry
-
-\* conseillés à aimée:
-
-La passe miroir \\(Christelle Dabos\\) tome 1-&gt; FR
-
-Uprooted \\(Naomi Novik\\) -&gt; EN
-
-Redshirts \\(John Scalzi\\) -&gt; EN
-
-The Goblin Emperor \\(Katherine Addison\\) -&gt; EN
-
-\[[https://www.babelio.com/livres/Sanderson-Elantris--Integrale/258515\]\(https://www.babelio.com/livres/Sanderson-Elantris--Integrale/258515\](https://www.babelio.com/livres/Sanderson-Elantris--Integrale/258515]%28https://www.babelio.com/livres/Sanderson-Elantris--Integrale/258515%29\)
-
-regarder les prix Hugo/Nebula/locus
-
-Spiritualité:
+**Self help**
 
 \* \[[https://fr.wikipedia.org/wiki/La\\_Philosophie\\_de\\_la\\_liberté\]\(https://fr.wikipedia.org/wiki/La\_Philosophie\_de\_la\_liberté\](https://fr.wikipedia.org/wiki/La_Philosophie_de_la_liberté]%28https://fr.wikipedia.org/wiki/La_Philosophie_de_la_liberté%29\)
 
 \* radical honesty \[[http://www.goodreads.com/book/show/551511.Radical\_Honesty\_?from\_search=true\]\(http://www.goodreads.com/book/show/551511.Radical\_Honesty\_?from\_search=true\](http://www.goodreads.com/book/show/551511.Radical_Honesty_?from_search=true]%28http://www.goodreads.com/book/show/551511.Radical_Honesty_?from_search=true%29\)
 
-Histoire:
-
-\* A Thousand Years of Nonlinear History
-
-
-
-Design:
+**Essai**
+A Thousand Years of Nonlinear History
 
 \* \[[https://design.blog/\]\(https://design.blog/\](https://design.blog/]%28https://design.blog/%29%29 %28design et inclusion\\)
 
 \* \`Thought as a Technology\` \[[http://cognitivemedium.com/tat/index.html\]\(http://cognitivemedium.com/tat/index.html\](http://cognitivemedium.com/tat/index.html]%28http://cognitivemedium.com/tat/index.html%29\)
 
-\* Trouver un résumé de "Nudge: Improving Decisions about Health, Wealth, and Happiness"
 
-Romans:
-
-\* Faust de Goethe
-
-\* Silo, les suites
-
-\* American gods
+Faust de Goethe
+American gods
 
 \#\# Chic flicks
 

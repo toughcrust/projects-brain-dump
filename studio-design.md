@@ -54,11 +54,8 @@ Des mots chouette:
 - désapprendre 
 
 
-Mon paradoxe: I dream that we're all 
 
 Projet: "The terrestrial space station"
-
-
 
 =&gt; Entre pragmatisme et superflu total
 

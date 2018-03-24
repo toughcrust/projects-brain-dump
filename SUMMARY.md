@@ -11,8 +11,8 @@
 * [Doodling](doodling-what-people-say.md)
 * [Participatif](cooperative.md)
 * [Ukulele](ukulele.md)
-* [Minimalisme](minimalisme.md)
-* [Raw sport](raw-sport.md)
-* [Cuisine ! / Manger](cuisine.md)
+* [Plus simple, plus kiffant](minimalisme.md)
+* [Sport](raw-sport.md)
+* [Bouffe: tips et expérimentations](cuisine.md)
 * [Argent / politique](argent-politique.md)
 
