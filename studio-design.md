@@ -1,3 +1,7 @@
+**Le chaman du business plan**
+Désenvoutement, retrouver le collaborateur aimé
+marie mes deux passions: compétition économique, WTF et LOL 
+
 Insight
 //Understanding the problem at hand
 Saturation 
