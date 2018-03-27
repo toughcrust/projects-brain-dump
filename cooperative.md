@@ -5,3 +5,5 @@ logement coopératif ?
 **thrill & chill** je reviens sur mon idée de salle partagée:
 bains banya / sauna, sorties courses pieds nus et baignade dans la Seine
 => souffrir à petite dose.
+
+Basic income or basic jobs ? => https://medium.com/@simon.sarris/guaranteed-minimum-agriculture-f93a5aa38c97 Fournir des boulots d'intérêt public plutôt qu'un revenu universel.
