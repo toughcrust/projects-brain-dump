@@ -1,6 +1,8 @@
 Cocon d'isolation
 lucid dreaming
 
+https://www.quantiquenergie.com/ => faire une hypnose de régression ?
+
 http://www.edgemagazine.net/2014/05/three-mudras/
 https://chopra.com/articles/10-powerful-mudras-and-how-to-use-them
 https://www.aypsite.ch/lecon_108
