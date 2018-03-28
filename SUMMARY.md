@@ -2,7 +2,7 @@
 
 * [En vrac](README.md)
 * [Hmm ça a l'air cool](chapter1.md)
-* Bored ? Tada !
+* [Bored ? Tada !](bored-tada.md)
 * [Hey c'était cool](trucs-qui-mont-marque.md)
 * [Culture végétale](micro-fermes.md)
 * [UX / design / boulot](studio-design.md)
@@ -15,5 +15,4 @@
 * [Plus simple, plus kiffant](minimalisme.md)
 * [Sport](raw-sport.md)
 * [Bouffe: tips et expérimentations](cuisine.md)
-* Bored ? Tada !
 
