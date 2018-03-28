@@ -24,3 +24,13 @@ Sometimes when we're not looking for what we want, we find what we need
 
 
 => pour que ce soit plus simple de voler comme un artiste ces phrases , les reformuler comme je veux et mettre un lien vers la citation en note
+
+# Logement
+
+Je veux pouvoir:
+bouger et revenir quand je veux
+vivre à la nature et en ville
+investir sans me ruiner, ne pas nourrir la spéculation immoblière
+
+**Une caravane tractée par vélo ??**
+
