@@ -1,3 +1,10 @@
+Il faut reconnaître et exploiter l'énergie "I want To BELIEVE" qu'on a tous. Bien la reconnaître pour ne pas insidieusement affecter la pensée rationnelle.
+
+Boulot: explorer parapsychique? 
+Design de rituels qui bouleversent 
+
+Himmeli! Cairn! 
+
 Me & others & society: useful, glowing and disposable !
 
 Je suis dans le jugement ! E t dans le jugement de jugement (Hack lefty brain !)
