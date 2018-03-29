@@ -1,3 +1,6 @@
+Endiguer l'épidémie d'avion: Xkm max par personne / an, pareil pour la voiture
+logement / nourriture: pareil limite légale sur l'impacte d'une personne.
+
 Il faut reconnaître et exploiter l'énergie "I want To BELIEVE" qu'on a tous. Bien la reconnaître pour ne pas insidieusement affecter la pensée rationnelle.
 
 Boulot: explorer parapsychique? 
