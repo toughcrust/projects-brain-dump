@@ -1,3 +1,7 @@
+Schizophrénie nécessaire de l'état:
+- doit nous aider / faire aspirer à être meilleur que nous sommes
+- doit être conscient de notre imperfection fondamentale, de notre **besoin vital de trangression**
+
 Endiguer l'épidémie d'avion: Xkm max par personne / an, pareil pour la voiture
 logement / nourriture: pareil limite légale sur l'impacte d'une personne.
 
