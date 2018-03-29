@@ -1,3 +1,5 @@
+NOT SHOWER(tm): un sauna à base de bouilloir + sac poubelle à mettre dans sa douche pour éviter les douches chaudes.
+
 Schizophrénie nécessaire de l'état:
 - doit nous aider / faire aspirer à être meilleur que nous sommes
 - doit être conscient de notre imperfection fondamentale, de notre **besoin vital de trangression**
