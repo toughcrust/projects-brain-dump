@@ -1,4 +1,9 @@
 27 pitchs de 5 lignes max pour "overthink" ?
+\+ **tout mettre sur "projets"** !
+
+Faire une section "Interventionnisme politique" ? Avec les combats qui me semblent important à mener ? Genre half-wild / interdiction de polluer / etc .
+
+https://medium.com/basic-income/universal-basic-income-the-maslow-argument-d1346fa9a9f2 => basic income
 
 NOT SHOWER(tm): un sauna à base de bouilloir + sac poubelle à mettre dans sa douche pour éviter les douches chaudes.
 
