@@ -10,7 +10,6 @@
 * [Mega \(road\) trip](mega-road-trip.md)
 * [Trucs ésotériques](signes-des-astres.md)
 * [Son / techno / méditation](musique-technologie-meditation.md)
-* [Doodling](doodling-what-people-say.md)
 * [Participatif](cooperative.md)
 * [Ukulele](ukulele.md)
 * [Plus simple, plus kiffant](minimalisme.md)
