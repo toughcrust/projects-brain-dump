@@ -1,3 +1,10 @@
+Input au design: formuler une contradiction intéressante
+
+
+
+
+
+
 **Le chaman du business plan**
 Désenvoutement, retrouver le collaborateur aimé
 marie mes deux passions: compétition économique, WTF et LOL 
