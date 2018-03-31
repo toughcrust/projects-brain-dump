@@ -18,6 +18,8 @@ En même temps, il faut garantir des droits élémentaires: des fruits et légum
 demande d'un logement de base => l'état doit répondre à la demande en 6 mois max.
 demande d'una allocation nourriture => soit soupe / pain / etc , soit de quoi cuisiner (légumes de saison bio)
 
+Faire du bon gras bio à partir d'insectes / de petits organismes vivants ?
+
 Il faut pareil avec l'argent => Tu capitalises => Tu ne peux pas spéculer sur l'argent en plus.
 
 27 pitchs de 5 lignes max pour "overthink" ?
