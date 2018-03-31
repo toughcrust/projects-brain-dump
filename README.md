@@ -58,5 +58,6 @@ Jai un nombre limité de fuck que je peux donner. Ça dépend de mon état de fo
 Joie = Flow = Profiter à fond de sa vie ?
 avec /!\ Profiter = pour moi digérer un max de ce qu'on vie. Profusion de choses à digérer et se donner le temps de "manger" le plus appétissant et d'en tirer le meilleur. **Discerner**, toujours plus! Tout en cherchant activement les sujets les plus intéressants à discerner !
 
+While we spend the next decade arguing over how to fund UBI, how to implement it, and how big it should be, we can also start preparing people for the massive mindset shift that is essential to the success of UBI. We can start by envisioning the future we’d want to create if we didn’t have to rely on jobs to meet our most basic needs. We can begin by helping the next generation define what success means to them individually, and offering them the tools to build their own path to achieve it. And we can do so by being an example, taking the lead in doing it ourselves.https://medium.com/@kacyqua/why-universal-basic-income-wont-work-f40f8a1f1148
 
 
