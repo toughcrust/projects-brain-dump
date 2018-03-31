@@ -4,11 +4,15 @@
 - Nécessité de créer une cohérence pour aider à la décision: donc compromis entre exactitude, hypothèses foules, rapidité (et efficacité. Une mauvaise décision qu'on rattrappe est des fois plus efficace qu'une bonne décision trop tardive ou prise dans un environnement finalement hostile)
 - Ré-examination permanente des données collectées, des manières dont elles ont été traitées afin de mettre à jour les principes (= clichés et préjugés)
 
-
-
 > - Ainsi, dites vous, je serais pris de vertiges parce que les solides fondations de passé ont été ébranlées ?
 - Exactement [...] Votre esprit se trouve surmené parce que totalement préoccupé par la reconstitution du passé, et il n'a plus la capacité d'accomplir son travail normal - comme de prendre soin de votre équilibre."
 
 Le problème Spinoza
+
+**Sweet negative thinking patterns paradoxes**
+- If you are cynical, it's because you are not cynical enough: you mix hopes and logic
+- If you think you are limited in any way (free will for example), you indeed limit yourself
+- I crave pleasing others as a way to fundamentally like myself. Then It's fucked up to do things I don't like to please others
+
 
 
