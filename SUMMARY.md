@@ -12,7 +12,7 @@
 * [Son / techno / méditation](musique-technologie-meditation.md)
 * [Participatif](cooperative.md)
 * [Ukulele](ukulele.md)
-* [Plus simple, plus kiffant](minimalisme.md)
+* [Bricolage survivalistico-convivialiste](minimalisme.md)
 * [Sport](raw-sport.md)
 * [Le cimetière des émanations de mon cerveau](le-cimetiere-des-emanations-de-mon-cerveau.md)
 

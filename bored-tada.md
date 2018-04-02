@@ -1,8 +1,10 @@
 **Télé**
 VICEland + VICE
 Reportages Arte
+BBC documentaries ?
 
 **comics / art**
+HEY ! magazine
 XKCD
 http://dilbert.com/
 Christopher Niemman
