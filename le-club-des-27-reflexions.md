@@ -70,6 +70,15 @@ Ca me dira bien des choses sur ce qui te motive. Moi ? Moi j'ai une admiration p
 14 - **I need not fearful guidance but guidance to sublimate fear**
 Copier ici "sur l'importance de dire merci et fuck u" / vole moi ce dont tu as besoin / je vais te dire ce que j'ai vécu et ce que j'ai ressenti, fais en ce que tu veux.
 
+15 - **Body does not accept "No" for an answer**
+La pensée consciente "passe le flambeau" au corps pour intégration des décisions prises. Mais les deux ne parlent pas exactement le même language. En particulier le corps est tout triste dés qu'il reçoit une injonction négative !
+
+16 - **The vertigo of knowing better**
+Take any topic that matters to you and do the following:
+- 1/2 hour with a study atmosphere and all necessary introductory material 
+- 1/2 hour where you discard the previous material and just re-think the whole think with a childish, blank, highly curious mind
+May not be actually true but you'll probably feel like you have uncovered deep truths barely hidden nobody saw before.
+
 
 
 
