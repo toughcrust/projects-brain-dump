@@ -79,6 +79,10 @@ Take any topic that matters to you and do the following:
 - 1/2 hour where you discard the previous material and just re-think the whole think with a childish, blank, highly curious mind
 May not be actually true but you'll probably feel like you have uncovered deep truths barely hidden nobody saw before.
 
+17 - **Grand écarts**
+- Influencé par "The Paleo Manifesto" je crois que nous sous-estimons / sommes ignorants de l'impact de l'evironnement et de ses équilibres sur notre propre survie => être naturaliste et suivre prudemment ce qui a marché sur le long terme. En même temps je crois que de l'avocat qui pousse en champignonnière et du putain de steak artificielle sans souffrance animal (= hacker la nature) c'est kiffant
+- Influencé par "The moral animal" et "Freedom from the known" je crois le coeur de mon "moi" immubale réduit à peau de chagrin. Et pourtant je ne pense pas qu'il soit de choses plus importante que de réaliser l'idéalisme omni-directionnel de ce "moi".
+
 
 
 
