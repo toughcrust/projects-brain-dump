@@ -46,6 +46,13 @@ Pour la ressentir pleinement, j'ai besoin de révéler avec patience et bienveil
 9 - **Burning man ce soir**
 Je veux la californie, la libération extatique ici et maintenant. Contre le voyage compulsif, boulimique et cloisonné. Contre la drogue socialement acceptable, pour la drogue personnellement et socialement profitable.
 
+10 - **Normalisation et auto-validation**
+Slate / Konbini et leurs articles ("Il faut arrêter de ...", "Pourquoi veut-on ...") => expression d'un processus intelectuel étonnant: on cherche à modeler les normes pour se changer soi-même. Puisque je me valide dans le regard des autres, je cherche à changer comment il doivent juger. A ne pas m'ancrer profondément dans l'auto-validation, je navigue à vue. Probablement à l'origine de bien des relations nocives à soi et aux autres (la pression sociale entre autres, comme avoir des enfants même si au fond on en a aucune envie).
+
+
+
+
+
 
 
  
