@@ -56,6 +56,10 @@ Slate / Konbini et leurs articles ("Il faut arrêter de ...", "Pourquoi veut-on 
 
 Ma version: regarder ce que font les "bloggueurs santés", "naturopathes holistiques", etc... et **tirer mes propres conclusions de leurs expériences.** Leurs tentatives d'explications pseudo scientifiques par contre ont un grand risque d'être nocives.
 
+12 - **Sky is the limit**
+Je ressens un panel d'émotions comme mon regard balaie le monde. Quand le temps est dégagé je suis réchauffé par le soleil, fort et doux. Quand le temps est encombré, je n'ai rien d'autre à faire (*) que de "profiter" de cette tristesse, la laisser nous envahir comme on se laisse submerger par le plaisir ? Ne pas en avoir honte / l'ignorer mais l'écouter, la chérir presque comme signe d'humanité et de potentialité de joie.
+
+(*) Hey ! attends, tu peux ptêt voyager si tu sens que la tempête ne t'apportera rien ;)
 
 
 
