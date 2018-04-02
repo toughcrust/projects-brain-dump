@@ -1,3 +1,5 @@
+Ici, vous êtes (💥) / You dare here 🎉
+
 1- **"Bon qui est présent ?"**
 "Ok je vois la peur, le désir, le besoin d'appartenance, l'idéaliste facho, la tata marrante ... woaw ... Merci de bien mettre votre badge en évidence, prenez place, pas toute la place ! Que tout le monde voit le spectacle. Kevin (*) un peu d'attention s'il te plaît ! Bisous à tous, bonne séance."
 (*) NDLR: la stagiaire de 3e.
@@ -45,6 +47,7 @@ Pour la ressentir pleinement, j'ai besoin de révéler avec patience et bienveil
 
 9 - **Burning man ce soir**
 Je veux la californie, la libération extatique ici et maintenant. Contre le voyage compulsif, boulimique et cloisonné. Contre la drogue socialement acceptable, pour la drogue personnellement et socialement profitable.
+> Le véritable voyage de découverte ne consiste pas à chercher de nouveaux paysages, mais à avoir de nouveaux yeux.
 
 10 - **Normalisation et auto-validation**
 Slate / Konbini et leurs articles ("Il faut arrêter de ...", "Pourquoi veut-on ...") => expression d'un processus intelectuel étonnant: on cherche à modeler les normes pour se changer soi-même. Puisque je me valide dans le regard des autres, je cherche à changer comment il doivent juger. A ne pas m'ancrer profondément dans l'auto-validation, je navigue à vue. Probablement à l'origine de bien des relations nocives à soi et aux autres (la pression sociale entre autres, comme avoir des enfants même si au fond on en a aucune envie).
@@ -61,11 +64,11 @@ Je ressens un panel d'émotions comme mon regard balaie le monde. Quand le temps
 
 (*) Hey ! attends, tu peux ptêt voyager si tu sens que la tempête ne t'apportera rien ;)
 
-**Qui est-ce que tu admires ?**
+13 - **Qui est-ce que tu admires ?**
 Ca me dira bien des choses sur ce qui te motive. Moi ? Moi j'ai une admiration pour les gens qui s'ouvrent publiquement sur leurs désirs indésirables et qui essaient de les combattre ou les sublimer. Je reste marqué par ce docu sur des pédophiles qui font un travail de "guérison" et accpetent de se laisser filmer.
 
-
-
+14 - **I need not fearful guidance but guidance to sublimate fear**
+Copier ici "sur l'importance de dire merci et fuck u" / vole moi ce dont tu as besoin / je vais te dire ce que j'ai vécu et ce que j'ai ressenti, fais en ce que tu veux.
 
 
 
