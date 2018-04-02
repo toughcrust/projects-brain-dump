@@ -49,6 +49,16 @@ Je veux la californie, la libération extatique ici et maintenant. Contre le voy
 10 - **Normalisation et auto-validation**
 Slate / Konbini et leurs articles ("Il faut arrêter de ...", "Pourquoi veut-on ...") => expression d'un processus intelectuel étonnant: on cherche à modeler les normes pour se changer soi-même. Puisque je me valide dans le regard des autres, je cherche à changer comment il doivent juger. A ne pas m'ancrer profondément dans l'auto-validation, je navigue à vue. Probablement à l'origine de bien des relations nocives à soi et aux autres (la pression sociale entre autres, comme avoir des enfants même si au fond on en a aucune envie).
 
+11 - **Your grandma was right but she didn't know why**
+
+> Never ask anyone for their opinion, forecast or recommendation. Just ask them what they have, or don't 
+`Nassim Nicholas Taleb`
+
+Ma version: regarder ce que font les "bloggueurs santés", "naturopathes holistiques", etc... et **tirer mes propres conclusions de leurs expériences.** Leurs tentatives d'explications pseudo scientifiques par contre ont un grand risque d'être nocives.
+
+
+
+
 
 
 
