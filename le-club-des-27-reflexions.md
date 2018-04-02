@@ -61,7 +61,8 @@ Je ressens un panel d'émotions comme mon regard balaie le monde. Quand le temps
 
 (*) Hey ! attends, tu peux ptêt voyager si tu sens que la tempête ne t'apportera rien ;)
 
-
+**Qui est-ce que tu admires ?**
+Ca me dira bien des choses sur ce qui te motive. Moi ? Moi j'ai une admiration pour les gens qui s'ouvrent publiquement sur leurs désirs indésirables et qui essaient de les combattre ou les sublimer. Je reste marqué par ce docu sur des pédophiles qui font un travail de "guérison" et accpetent de se laisser filmer.
 
 
 

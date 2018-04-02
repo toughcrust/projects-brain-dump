@@ -35,6 +35,12 @@ We must love one another or die
 
 (Wh auden)
 
+**La zone du dehors**
+
+> Vous vous ennuyez, les gens! L’actif en vous, le vif, a perdu ses adversaires, se morfond, n’a, pour ses conquêtes, plus d’espace, plus de front où aller tremper le métal de ses os ! Plus de quoi s’user, épuiser ses forces, hein? Ah si : dans les petits plaisirs : les capsules, les stimulations artificielles, la virtue, le jeu, les images… **Les gens ne sont pas morbides : ils veulent juste de l’intensité** 
+
+
+
 
 
 
