@@ -40,5 +40,12 @@ Le meilleur de ce qui est dans l'H, comme le meilleur que ce qu'on peut espérer
 7 - **Lutter contre la ségrégation**
 Piège vicieux: même avec les meilleures intentions, identifier une forme de ségrégation et ceux qui en sont victime est une forme de matérialisation de cette ségrégation. Ignorer ? Bof ... Idée: Ne pas simplement lutter contre une difficulté présente et tangible, s'attaquer à des démons imaginaires qui dépassent les lignes établies (front commun d'une humanité qui doit lutter contre une intelligence extra-terrestre supérieure => questionnement sur la pertinence de l'intelligence comme justification de domination)
 
+8 - **There is a depth in anyone's eyes**
+Pour la ressentir pleinement, j'ai besoin de révéler avec patience et bienveillance tout ce qui nous sépare (paradoxal non ?!). Prenons chacun notre chemin, célébrons nos différences. Cela nous met sur la voie d'une résonance toujours plus forte, même si pour cela nous nous éloignons. 
+
+9 - **Burning man ce soir**
+Je veux la californie, la libération extatique ici et maintenant. Contre le voyage compulsif, boulimique et cloisonné. Contre la drogue socialement acceptable, pour la drogue personnellement et socialement profitable.
+
+
 
  
