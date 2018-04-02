@@ -38,7 +38,7 @@ Le meilleur de ce qui est dans l'H, comme le meilleur que ce qu'on peut espérer
 - un idéalisme qui tire vers le haut, une ingéniosité qui sublime
 
 7 - **Lutter contre la ségrégation**
-Piège vicieux: même avec les meilleures intentions, identifier une forme de ségrégation et ceux qui en sont victime est une forme de matérialisation de cette ségrégation. Ignorer ? Bof ... Idée: Ne pas simplement lutter contre une difficulté présente et tangible, s'attaquer à des démons imaginaires qui dépassent 
+Piège vicieux: même avec les meilleures intentions, identifier une forme de ségrégation et ceux qui en sont victime est une forme de matérialisation de cette ségrégation. Ignorer ? Bof ... Idée: Ne pas simplement lutter contre une difficulté présente et tangible, s'attaquer à des démons imaginaires qui dépassent les lignes établies (front commun d'une humanité qui doit lutter contre une intelligence extra-terrestre supérieure => questionnement sur la pertinence de l'intelligence comme justification de domination)
 
 
  
