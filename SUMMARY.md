@@ -6,7 +6,7 @@
 * [Hey c'était cool](trucs-qui-mont-marque.md)
 * [Le club des 27 \(réflexions\)](le-club-des-27-reflexions.md)
 * [UX / design / boulot](studio-design.md)
-* [Mega \(road\) trip](mega-road-trip.md)
+* [Vacances coolos](mega-road-trip.md)
 * [Trucs ésotériques](signes-des-astres.md)
 * [Agenda politique](agenda-politique.md)
 * [Son / techno / méditation](musique-technologie-meditation.md)
