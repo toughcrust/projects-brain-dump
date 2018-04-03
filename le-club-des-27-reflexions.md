@@ -83,6 +83,12 @@ May not be actually true but you'll probably feel like you have uncovered deep t
 - Influencé par "The Paleo Manifesto" je crois que nous sous-estimons / sommes ignorants de l'impact de l'evironnement et de ses équilibres sur notre propre survie => être naturaliste et suivre prudemment ce qui a marché sur le long terme. En même temps je crois que de l'avocat qui pousse en champignonnière et du putain de steak artificielle sans souffrance animal (= hacker la nature) c'est kiffant
 - Influencé par "The moral animal" et "Freedom from the known" je crois le coeur de mon "moi" immubale réduit à peau de chagrin. Et pourtant je ne pense pas qu'il soit de choses plus importante que de réaliser l'idéalisme omni-directionnel de ce "moi".
 
+18 - **Le langage**
+Le langage circonscrit la pensée. Comme se référer à d'autres penseurs plutôt qu de prendre deux secs pour inspecter ce qui résone vraiment, la langage apport des réponse pré-mâchées. Et pourtant ! Sans langage, sans l'écriture et le cloud je n'arriverais pas à approfondir ma pensée. Là je peux retourner dans un état proche de là où ma pensée s'est précédemment arrêtée.
+
+
+
+
 
 
 
