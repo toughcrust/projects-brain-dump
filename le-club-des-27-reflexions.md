@@ -86,6 +86,13 @@ May not be actually true but you'll probably feel like you have uncovered deep t
 18 - **Le langage**
 Le langage circonscrit la pensée. Comme se référer à d'autres penseurs plutôt qu de prendre deux secs pour inspecter ce qui résone vraiment, la langage apport des réponse pré-mâchées. Et pourtant ! Sans langage, sans l'écriture et le cloud je n'arriverais pas à approfondir ma pensée. Là je peux retourner dans un état proche de là où ma pensée s'est précédemment arrêtée.
 
+19 - **L'expansion toujours, défier**
+Certes y aura toujours de la peur mais je peux la repousser pour étendre ma joie.
+Certes j'ai bouffé des animaux à la pelle je n'y changerai rien d'autres continueront mais je peux progresser de mon côté et entretenir le rêve fou d'un Putin de steak haché vege .
+Des avocats écolos qui poussent à Paris.
+De la putain de viande saignante végé locale aussi.
+Me faire des putains de burgers avec du pain de sarrasin.
+Un putain de défi.
 
 
 
