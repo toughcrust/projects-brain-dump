@@ -1,0 +1,1 @@
+Identification des processus de transformation. De leurs responsables et de leurs externalités + et négatives.
