@@ -1,3 +1,10 @@
+bouquin sur les mudras: https://www.amazon.com/gp/aw/d/097443034X/ref=cm_cr_arp_mb_bdcrb_top?ie=UTF8
+
+Mudras: permettent de débloquer, diriger les flux de chépaquoi dans le corps
+
+Cannot be unseen: Fumer = "mudra de jesus" + respiration consciente profonde
+Chercher à accorder mudras et chants ou musique ?
+
 Cocon d'isolation
 lucid dreaming
 

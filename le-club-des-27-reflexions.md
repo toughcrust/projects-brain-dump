@@ -94,8 +94,8 @@ De la putain de viande saignante végé locale aussi.
 Me faire des putains de burgers avec du pain de sarrasin.
 Un putain de défi.
 
-
-
+20 - **Digérer la vie**
+Pour expérimenter les flux, il faut y opposer une résistance" Tristan Garcia. Rejoint mes réflexions sur la "digestion"
 
 
 
