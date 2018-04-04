@@ -1,3 +1,9 @@
+Musiques pour méditer:
+Danheim - Herja (Full Album 2018) - Viking War Songs https://www.youtube.com/watch?v=wmN6wZ9rVPY 
+https://laboratoriumpiesni.bandcamp.com/
+Hildegard von Bingen - Canticles Of Ecstasy (https://www.youtube.com/watch?v=Ei88J4lERbk) + tambours chamaniques (https://www.youtube.com/watch?v=BkzA_u9smXU&t=5271s)
+Boys noyze
+
 bouquin sur les mudras: https://www.amazon.com/gp/aw/d/097443034X/ref=cm_cr_arp_mb_bdcrb_top?ie=UTF8
 
 Mudras: permettent de débloquer, diriger les flux de chépaquoi dans le corps
