@@ -1,5 +1,7 @@
 Ici, vous êtes (💥) / You dare here 🎉
 
+https://hackernoon.com/if-you-want-to-become-an-influential-thought-leader-live-by-these-3-principles-7f17cbeb25e0
+
 1- **"Bon qui est présent ?"**
 "Ok je vois la peur, le désir, le besoin d'appartenance, l'idéaliste facho, la tata marrante ... woaw ... Merci de bien mettre votre badge en évidence, prenez place, pas toute la place ! Que tout le monde voit le spectacle. Kevin (*) un peu d'attention s'il te plaît ! Bisous à tous, bonne séance."
 (*) NDLR: la stagiaire de 3e.
