@@ -1,5 +1,7 @@
 Ici, vous êtes (💥) / You dare here 🎉
 
+People need to take a plane around the world and wait a year to allow themselves to relax half naked in the sun ... :D. Or speak to a random person near them :lmfao:
+
 https://hackernoon.com/if-you-want-to-become-an-influential-thought-leader-live-by-these-3-principles-7f17cbeb25e0
 
 1- **"Bon qui est présent ?"**
