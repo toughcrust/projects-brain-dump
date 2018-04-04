@@ -97,6 +97,7 @@ Un putain de défi.
 20 - **Digérer la vie**
 Pour expérimenter les flux, il faut y opposer une résistance" Tristan Garcia. Rejoint mes réflexions sur la "digestion"
 
+21 - **cut the ~crap~ bore**
 
 
  
