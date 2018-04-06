@@ -115,3 +115,12 @@ Pour expérimenter les flux, il faut y opposer une résistance" Tristan Garcia. 
 
 21 - **cut the ~crap~ bore**
 
+22 - **Topic éducation**
+
+Apprendre à apprécier, respecter et tirer profit de la différence  
+Apprendre à être son propre parent, sa propre muse  
+préparation au revenu universel  
+Apprendre à expliciter ses propres clés de compréhension et accepter de laisser les autres les tweaker à leur sauce, accepter que les **autres utilisent notre sagesse pour faire mieux**
+
+
+
