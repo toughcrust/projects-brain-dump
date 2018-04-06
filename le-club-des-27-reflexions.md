@@ -7,6 +7,8 @@ People need to take a plane around the world and wait a year to allow themselves
 
 =&gt; "PAY FORWARD"
 
+=&gt; "Need dropper" ! En design, dans la vie et le boulot j'aime "drop the need !". La méditation / relaxation c'est ça pour moi aussi: drop it all ! Et pour une raison incompréhensible il y a un bénéfice inattendu: de nouvelles pensées / idées kiffantes arrivent !! Weird, alors qu'on fait le vide
+
 1- **"Bon qui est présent ?"**  
 "Ok je vois la peur, le désir, le besoin d'appartenance, l'idéaliste facho, la tata marrante ... woaw ... Merci de bien mettre votre badge en évidence, prenez place, pas toute la place ! Que tout le monde voit le spectacle. Kevin \(_\) un peu d'attention s'il te plaît ! Bisous à tous, bonne séance."  
 \(_\) NDLR: la stagiaire de 3e.
@@ -66,7 +68,7 @@ Slate / Konbini et leurs articles \("Il faut arrêter de ...", "Pourquoi veut-on
 
 11 - **Your grandma was right but she didn't know why**
 
-> Never ask anyone for their opinion, forecast or recommendation. Just ask them what they have, or don't   
+> Never ask anyone for their opinion, forecast or recommendation. Just ask them what they have, or don't  
 > `Nassim Nicholas Taleb`
 
 Ma version: regarder ce que font les "bloggueurs santés", "naturopathes holistiques", etc... et **tirer mes propres conclusions de leurs expériences.** Leurs tentatives d'explications pseudo scientifiques par contre ont un grand risque d'être nocives.
