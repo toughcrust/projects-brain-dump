@@ -20,6 +20,10 @@ People need to take a plane around the world and wait a year to allow themselves
 * Evidemment un équilibre à trouver entre le vertige du questionnement qui permet d'appréhender ce qui nous entoure mais paralyse. Est-ce que c'est cette sensation qu'on trouve et recherche dans l'extase du voyage ? 
 * Le langage est dans cet équilibre: en même temps un incroyable **échaffaudage** pour la pensée \(essaie de penser sans !\), en même temps une **stérilisation** du sens. Quand je dis "arbre", ça ne correspond à aucune réalité, c'est une nouvelle entité, un truc vague et sans émotion\). 
 
+> Only by forgetting this primitive world of metaphor can one live with any repose, security, and consistency: only by means of the petrification and coagulation of a mass of images which originally streamed from the primal faculty of human imagination like a fiery liquid, only in the invincible faith in this sun, this window, this table is a truth in itself, in short, only by forgetting that he himself is an artistically creative subject, does man live with any repose, security, and consistency
+
+Nietzsche.
+
 > * Ainsi, dites vous, je serais pris de vertiges parce que les solides fondations de passé ont été ébranlées ?
 > * Exactement \[...\] Votre esprit se trouve surmené parce que totalement préoccupé par la reconstitution du passé, et il n'a plus la capacité d'accomplir son travail normal - comme de prendre soin de votre équilibre."
 
