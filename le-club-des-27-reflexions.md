@@ -16,7 +16,8 @@ People need to take a plane around the world and wait a year to allow themselves
 2 - **Big data dans le cerveau**
 
 * Nécessité de créer une cohérence pour aider à la décision: donc compromis entre exactitude, hypothèses foules, rapidité \(et efficacité. Une mauvaise décision qu'on rattrappe est des fois plus efficace qu'une bonne décision trop tardive ou prise dans un environnement finalement hostile\)
-* Ré-examination permanente des données collectées, des manières dont elles ont été traitées afin de mettre à jour les principes \(= clichés et préjugés\)
+* Ré-examination permanente des données collectées, des manières dont elles ont été traitées afin de mettre à jour les principes \(= clichés et préjugés\). Si on est capable de réintroduire proprement ses problèmes \(pas juste recracher l'introduction\) on resitue le problème à la racine et on trouve souvent les réponses dans la reformulation.
+* Evidemment un équilibre à trouver entre le vertige du questionnement qui permet d'appréhender ce qui nous entoure mais paralyse. Est-ce que c'est cette sensation qu'on trouve et recherche dans l'extase du voyage ? 
 
 > * Ainsi, dites vous, je serais pris de vertiges parce que les solides fondations de passé ont été ébranlées ?
 > * Exactement \[...\] Votre esprit se trouve surmené parce que totalement préoccupé par la reconstitution du passé, et il n'a plus la capacité d'accomplir son travail normal - comme de prendre soin de votre équilibre."
@@ -121,6 +122,4 @@ Apprendre à apprécier, respecter et tirer profit de la différence
 Apprendre à être son propre parent, sa propre muse  
 préparation au revenu universel  
 Apprendre à expliciter ses propres clés de compréhension et accepter de laisser les autres les tweaker à leur sauce, accepter que les **autres utilisent notre sagesse pour faire mieux**
-
-
 
