@@ -1,5 +1,7 @@
 Ici, vous êtes \(💥\) / You dare here 🎉
 
+Overthink feelings, let intentions arise. and vice versa. 
+
 People need to take a plane around the world and wait a year to allow themselves to relax half naked in the sun ... :D. Or speak to a random person near them :lmfao:
 
 [https://hackernoon.com/if-you-want-to-become-an-influential-thought-leader-live-by-these-3-principles-7f17cbeb25e0](https://hackernoon.com/if-you-want-to-become-an-influential-thought-leader-live-by-these-3-principles-7f17cbeb25e0)  
@@ -127,4 +129,10 @@ Apprendre à apprécier, respecter et tirer profit de la différence
 Apprendre à être son propre parent, sa propre muse  
 préparation au revenu universel  
 Apprendre à expliciter ses propres clés de compréhension et accepter de laisser les autres les tweaker à leur sauce, accepter que les **autres utilisent notre sagesse pour faire mieux**
+
+23 - **Réfléchir à exploiter tue l'exploration et l'intention**
+
+Ex: quand je trouve une manière de me relaxer, je commence à imaginer activement dans l'instant qui suit comment en tirer parti. Et de façon encore plus prosaïque comment monnayer ça. Je n'ai rien contre l'argent dans l'absolu mais ce réflexe ne vient pas seulement occuper de l'énergie de façon prématurée, il détourne même l'intention initiale, celle qui nous a fait kiffer. C'est un peu comme quand on offre un cadeau qu'on voudrait soi-même: à mélanger les visées on y perd.  
+Ca me fait penser: peut être faut-il particulièrement être conscient de l'utilité de ce qu'on est en train de faire: soit on est en train de gagner sa croute, soit c'est du loisir ou de l'exploration qui mènera peut être à un job mais là il faut être le plus possible dans la liberté d'exploration. Un peu comme l'attention. Pendant la journée, s'attacher aux pensées obsédantes pour les suivres et en venir à bout. Le soir, se détacher de toute pensée pour se libérer et dormir.  
+Pour en revenir à l'utilité, est-ce qu'une stratégie de type "tant que personne ne m'offre 1000 euros pour me piquer mon idée, rien ne sert de songer à la rentabilité ou même toute utilité \(chopper\)" peut être utile ? Ca me paraît pas mal, le côté chiffré, précis, ultra prosaïque et presque raisonnable a moyen de parler et calmer left brainy.
 
