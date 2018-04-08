@@ -29,7 +29,8 @@ Horrible nightmares: It follows, Enemy \(Villeneuve\)
 My dystopian heroes: La zone du dehors, Black mirror, Spin, mr Robot  
 The media I ❤: Usbek & Rica, HackerNoon, Arte, Vice
 
-**Boulot  
-**questions de design à \(se\) poser à différents stades d'un projet: https://uxdesign.cc/questions-ux-designers-should-be-asking-bc9a6ba87a34  
-faire une roadmap: [https://hackernoon.com/why-i-stopped-using-product-roadmaps-and-switched-to-gist-planning-3b7f54e271d1](https://legacy.gitbook.com/book/toughcrust/brain-dump/edit#)
+**Boulot    
+**questions de design à \(se\) poser à différents stades d'un projet: [https://uxdesign.cc/questions-ux-designers-should-be-asking-bc9a6ba87a34](https://uxdesign.cc/questions-ux-designers-should-be-asking-bc9a6ba87a34)  
+faire une roadmap: [https://hackernoon.com/why-i-stopped-using-product-roadmaps-and-switched-to-gist-planning-3b7f54e271d1](https://legacy.gitbook.com/book/toughcrust/brain-dump/edit#)  
+citations UX cools: https://blog.usejournal.com/70ish-life-and-business-lessons-for-designers-9d8c5b9e3476
 
