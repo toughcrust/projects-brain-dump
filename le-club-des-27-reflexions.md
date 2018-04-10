@@ -1,6 +1,6 @@
 Ici, vous êtes \(💥\) / You dare here 🎉
 
-Overthink feelings, let intentions arise. and vice versa. 
+Overthink feelings, let intentions arise. and vice versa.
 
 People need to take a plane around the world and wait a year to allow themselves to relax half naked in the sun ... :D. Or speak to a random person near them :lmfao:
 
@@ -135,4 +135,9 @@ Apprendre à expliciter ses propres clés de compréhension et accepter de laiss
 Ex: quand je trouve une manière de me relaxer, je commence à imaginer activement dans l'instant qui suit comment en tirer parti. Et de façon encore plus prosaïque comment monnayer ça. Je n'ai rien contre l'argent dans l'absolu mais ce réflexe ne vient pas seulement occuper de l'énergie de façon prématurée, il détourne même l'intention initiale, celle qui nous a fait kiffer. C'est un peu comme quand on offre un cadeau qu'on voudrait soi-même: à mélanger les visées on y perd.  
 Ca me fait penser: peut être faut-il particulièrement être conscient de l'utilité de ce qu'on est en train de faire: soit on est en train de gagner sa croute, soit c'est du loisir ou de l'exploration qui mènera peut être à un job mais là il faut être le plus possible dans la liberté d'exploration. Un peu comme l'attention. Pendant la journée, s'attacher aux pensées obsédantes pour les suivres et en venir à bout. Le soir, se détacher de toute pensée pour se libérer et dormir.  
 Pour en revenir à l'utilité, est-ce qu'une stratégie de type "tant que personne ne m'offre 1000 euros pour me piquer mon idée, rien ne sert de songer à la rentabilité ou même toute utilité \(chopper\)" peut être utile ? Ca me paraît pas mal, le côté chiffré, précis, ultra prosaïque et presque raisonnable a moyen de parler et calmer left brainy.
+
+24 - **Etre jugé sur mes intentions. Trouver l'intention fondamentale qui nous unit.**
+
+Pourquoi j'accepte d'être jugé ? Et que je le veux même ??! parce que c'est une excellente façon de se challenger ?  
+Pourquoi c'est désagréable et que les autres nous font chier de fois ? Parce qu'ils le ofnt en cherchant à nous mettre mal à l'aise \(souvent inconsciemment\) parce que c'est plus efficace: je destabilise l'autre du coup je lui délègue la gestion de crise et la réflexion ! Si je veux juger / critiquer en **aidant **je dois chercher à comprendre les intentions de l'autre. Si je les comprends vraiment \(pourquoi ? pourquoi ? pourquoi ?\) je peux au choix discuter de façon posée et constructive de l'adéquation enre les intentions et leur concrétisation ou bien dire que je ne suis pas en phase avec l'intention de base. En profiter our creuser vers une intention commune, plus fondamentale. 
 
