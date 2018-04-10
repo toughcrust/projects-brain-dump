@@ -1,3 +1,6 @@
+**Idée:  
+Faire une maison 100% recyclage façon navette spatiale avec la maison du Paris durable**
+
 ### A tester
 
 Se couper les cheveux moi-même
