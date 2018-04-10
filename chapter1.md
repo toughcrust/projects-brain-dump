@@ -14,7 +14,9 @@ Please like me
 La science des rêves
 
 **Articles**  
-[https://usbeketrica.com/auteur/nicolasminvielle-olivierwathelet](https://usbeketrica.com/auteur/nicolasminvielle-olivierwathelet) =&gt; Le design fiction, 12 articles qui ont l'air assez chouette
+[https://usbeketrica.com/auteur/nicolasminvielle-olivierwathelet](https://usbeketrica.com/auteur/nicolasminvielle-olivierwathelet) =&gt; Le design fiction, 12 articles qui ont l'air assez chouette  
+http://journals.rudn.ru/philosophy/article/download/14055/13304 =&gt; Rumi et Nietszche  
+http://dergipark.ulakbim.gov.tr/kaygi/article/viewFile/5000192057/5000167520 =&gt; Nietszche & Spinoza
 
 **Docus**  
 Merci patron
@@ -36,7 +38,7 @@ Radical honesty
 **Essai**  
 A Thousand Years of Nonlinear History  
 Understanding Comics: The Invisible Art \([https://www.amazon.com/Understanding-Comics-Invisible-Scott-McCloud/dp/006097625X](https://www.amazon.com/Understanding-Comics-Invisible-Scott-McCloud/dp/006097625X)\)  
-https://www.amazon.fr/L%C3%A9tonnement-philosophique-Jeanne-Hersch/dp/2070327841/ref=sr\_1\_1?ie=UTF8&qid=1522915642&sr=8-1&keywords=l%27+%C3%A9tonnement+philosophique&dpID=519FTXD%252B9fL&preST=\_SY344\_BO1,204,203,200\_QL70\_&dpSrc=srch
+[https://www.amazon.fr/Létonnement-philosophique-Jeanne-Hersch/dp/2070327841/ref=sr\_1\_1?ie=UTF8&qid=1522915642&sr=8-1&keywords=l'+étonnement+philosophique&dpID=519FTXD%2B9fL&preST=\_SY344\_BO1,204,203,200\_QL70\_&dpSrc=srch](https://www.amazon.fr/Létonnement-philosophique-Jeanne-Hersch/dp/2070327841/ref=sr_1_1?ie=UTF8&qid=1522915642&sr=8-1&keywords=l'+étonnement+philosophique&dpID=519FTXD%2B9fL&preST=_SY344_BO1,204,203,200_QL70_&dpSrc=srch)
 
 **Romans**  
 Faust de Goethe  
