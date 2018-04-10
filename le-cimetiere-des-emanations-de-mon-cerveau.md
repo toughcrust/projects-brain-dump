@@ -47,13 +47,17 @@ Fuck me. litterally.
 **Le problème Spinoza**
 
 > J'admire votre façon de ne pas rester à la surface des choses - d'être prêt à partager vos réflexions en toute honnêteté et en toute liberté.
-
+>
 > Ce vécu heureux et plein de joie est une conséquence de l'abolition de la séparation plutôt que du lien. Voilà la différence - la différence entre les hommes qui se rapprochent pour avoir chaud et les hommes qui ensemble partagent une vision joyeuse de la Nature ou de Dieu. \[...\] Il semble paradoxal de dire que les hommes sont plus utiles les uns aux autres quand ils suivent chacun leur propre chemin.
 
 **A few enthusiasting ideas for the meaning of our life**
 
 * we are the genitals our our technology, enabling it to live and prosper \(it is actually a more robust form of "life"\) a bit like in the novel `Spin`
 * we are meat harvested by ungodly gods \(hello `Sausage party`\)
+
+**L'éco-féministe Starhawk**
+
+> When someone suggests that our recent behavior has undone our right to exist, a useful question to ask is, "What do you want? What can I do to make the situation better?" This often reduces the Judge's voice to silence, because what the Judge really wants- but cannot admit- is to make you feel bad, not to get the floor clean. When we feel secure in our inherent value, we do not have to argue about our worth as human beings. Instead, we can attempt to solve the problem.
 
 
 
