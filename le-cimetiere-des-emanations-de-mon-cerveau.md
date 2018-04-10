@@ -59,5 +59,9 @@ Fuck me. litterally.
 
 > When someone suggests that our recent behavior has undone our right to exist, a useful question to ask is, "What do you want? What can I do to make the situation better?" This often reduces the Judge's voice to silence, because what the Judge really wants- but cannot admit- is to make you feel bad, not to get the floor clean. When we feel secure in our inherent value, we do not have to argue about our worth as human beings. Instead, we can attempt to solve the problem.
 
+**Joël Sternheimer**
+
+> _Le problème du déni du sujet dans la science. Dans le judaïsme, dont la tradition m’imprègne, il y a un passage de la pâque juive qui insiste sur la différence entre le sage et le pervers : le sage est celui qui s’inclut comme partie prenante de l’univers qu’il étudie, tandis que le pervers le considère du dehors. Dans cette optique-là, la science contemporaine tend à être perverse, dans la mesure où elle exclut le sujet de sa description du monde._
+
 
 
