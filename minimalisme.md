@@ -3,7 +3,7 @@ Faire une maison 100% recyclage façon navette spatiale avec la maison du Paris 
 
 Grow psychedelic on own faeces
 
-### A tester
+Chia + caca :D
 
 Se couper les cheveux moi-même
 
