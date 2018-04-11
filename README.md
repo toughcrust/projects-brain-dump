@@ -2,6 +2,9 @@ Ma qualité: de-fragmented\* constrained\*\* problem solving
 \* I need to have a good understanding of left and right brain issues. I like to refresh how my/our brain\(s\) usually categorize things and stuff.  
 \*\* Dunno why, I often gravitate around very specific issues
 
+Moi, mes drives:  
+sauvage + futuriste. 
+
 Terrestrial space station:  
 catégoriser les idées selon masse critique, graduel ou grand saut, etc ...
 
@@ -22,8 +25,9 @@ Faire du bon gras bio à partir d'insectes / de petits organismes vivants ?
 
 Il faut pareil avec l'argent =&gt; Tu capitalises =&gt; Tu ne peux pas spéculer sur l'argent en plus.
 
-27 pitchs de 5 lignes max pour "overthink" ?  
-+ **tout mettre sur "projets"** !
+27 pitchs de 5 lignes max pour "overthink" ?
+
+* **tout mettre sur "projets"** !
 
 Faire une section "Interventionnisme politique" ? Avec les combats qui me semblent important à mener ? Genre half-wild / interdiction de polluer / etc .
 
@@ -41,7 +45,7 @@ logement / nourriture: pareil limite légale sur l'impacte d'une personne.
 
 Il faut reconnaître et exploiter l'énergie "I want To BELIEVE" qu'on a tous. Bien la reconnaître pour ne pas insidieusement affecter la pensée rationnelle.
 
-Boulot: explorer parapsychique?   
+Boulot: explorer parapsychique?  
 Design de rituels qui bouleversent
 
 Himmeli! Cairn!
