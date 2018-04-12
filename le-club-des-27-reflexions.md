@@ -145,3 +145,22 @@ Pourquoi c'est désagréable et que les autres nous font chier de fois ? Parce q
 
 Wishful thinking \(je reste positif malgré ..., je me répète des pensées positives, je regarde le bon côté des choses, c'est en espérant qu'on créé le positif\) VS ecstasy driven thinking \(un truc de moi à développer: au contraire je cherche à créer l'impossible dans les contradictions que je regarde droit en face. J'explore l'obscur pour en tirer la clarté la plus kiffante. NULLE cette définition. utiliser des termes simples et concrets.\)
 
+26 - **La gratification et le malaise: des indicateurs à double tranchant**
+
+Quand le corps va mal \(typiquement digestion\) ou au contraire trop bien \(des gens qui sont résilients dans le bonheur suite à des évènements joyeux\) =&gt; on ne perçoit pas les stimulis correspondants à ce que l'on fait et pour lesquels on pense que l'on devrait ressentir du plaisir ou du déplaisir =&gt; On ne sait pas si l'on doit choisir entre deux attitudes diamétralement opposées et potentiellement complètement pertinentes:
+
+* ignorer ce qui affleure à la consscience car c'est du bruit qui interfère avec les "vraies" émotions
+* Y être extrêmement réceptif car c'est un signal faible de l'inconscient qui cherche à communique
+
+Et par définition puisque l'inconscient est impliqué va chercher la rationnalité, la "bonne approche" ...
+
+27 - **La tragédie des communs en psycho: cacher ses difficultés**
+
+En fait y'a une vraie tragédie des communs ! On souffre quand il nous semble que la vie est moins difficile pour les autres \(ils réussissent avec moins d'efforts\). En plus de s'auto-dévaloriser, on craint l'exclusion s'ils savent que c'est bien plus compliqué que ce que l'on veut bien montrer =&gt; on cache d'autant plus ! Vrai externalité positive pour la société à parler de ses "vrais" échecs \(des choses que l'on a pas transformés pour paraître, que l'on ressent toujours comme un échec\) =&gt; parler de l'échec quand il est encore en cours. 
+
+**/!\** 28 - **Coop VS hiérarchie: s'aventurer hors des sentiers battus**
+
+Dans la coop, ou la réinvention permanente de ses rapports avec les autres, il faut se repérer. C'est cool dans le sens \#holidaysFeeling, par contre ça demande un surplus d'énergie et d'attention portée à la relation. 
+
+
+
