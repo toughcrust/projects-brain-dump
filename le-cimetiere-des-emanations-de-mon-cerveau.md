@@ -61,7 +61,11 @@ Fuck me. litterally.
 
 **Joël Sternheimer**
 
-> _Le problème du déni du sujet dans la science. Dans le judaïsme, dont la tradition m’imprègne, il y a un passage de la pâque juive qui insiste sur la différence entre le sage et le pervers : le sage est celui qui s’inclut comme partie prenante de l’univers qu’il étudie, tandis que le pervers le considère du dehors. Dans cette optique-là, la science contemporaine tend à être perverse, dans la mesure où elle exclut le sujet de sa description du monde._
+> _Le problème du déni du sujet dans la science. Dans le judaïsme, dont la tradition m’imprègne, il y a un passage de la pâque juive qui insiste sur la différence entre le sage et le pervers : le sage est celui qui s’inclut comme partie prenante de l’univers qu’il étudie, tandis que le pervers le considère du dehors. Dans cette optique-là, la science contemporaine tend à être perverse, dans la mesure où elle exclut le sujet de sa description du monde._
+
+**Drishti Bablani**
+
+> Fear is your growth agent in disguise, only if you choose fight over flight. It compels you to up your game to survive.
 
 
 
