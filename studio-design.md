@@ -1,31 +1,34 @@
+écrire:
+
+https://www.invisionapp.com/blog/writing-tips-for-non-writers/
+
+https://www.invisionapp.com/blog/narrative-in-ux-design/
+
+https://medium.com/designers-interactifs/ux-writer-le-poids-des-mots-le-choc-des-protos-9843902b36bf
+
 Input au design: formuler une contradiction intéressante
 
+**Le chaman du business plan**  
+Désenvoutement, retrouver le collaborateur aimé  
+marie mes deux passions: compétition économique, WTF et LOL
 
-
-
-
-
-**Le chaman du business plan**
-Désenvoutement, retrouver le collaborateur aimé
-marie mes deux passions: compétition économique, WTF et LOL 
-
-Insight
-//Understanding the problem at hand
-Saturation 
-//Absorbing information and inspiration
-Incubation
-//Allowing your mind to piece together ideas
-Illumination 
-//The cliché light bulb moment
-Verification 
-//Filtering solutions and making things work
-Exploration
+Insight  
+//Understanding the problem at hand  
+Saturation   
+//Absorbing information and inspiration  
+Incubation  
+//Allowing your mind to piece together ideas  
+Illumination   
+//The cliché light bulb moment  
+Verification   
+//Filtering solutions and making things work  
+Exploration  
 //Moving deeper through ideas and solutions
 
-**Tests d'intrusion UX**
-Est-ce que ton service / produit est vraiment nécessaire / cool ?
-Comment je peux m'en passer, le hacker, en faire une copie cheap, faire plus marrant, combiner avec un autre besoin que j'ai ?
-Si c'est vraiment nécessaire et pas fun de base (la paie), est-ce que je peux pas en fait en faire une activité cool ? **revenir au coeur de ce qui me fait kiffer
+**Tests d'intrusion UX**  
+Est-ce que ton service / produit est vraiment nécessaire / cool ?  
+Comment je peux m'en passer, le hacker, en faire une copie cheap, faire plus marrant, combiner avec un autre besoin que j'ai ?  
+Si c'est vraiment nécessaire et pas fun de base \(la paie\), est-ce que je peux pas en fait en faire une activité cool ? **revenir au coeur de ce qui me fait kiffer  
 **, de pourquoi j'ai accepté de me laisser entraîner dans ce boulot de RH plutôt qu'une autre prison. Reprendre le flambeau et me réinventer en, paradoxalement, revenant à mes fondements.
 
 ### Noms
@@ -36,46 +39,46 @@ Si c'est vraiment nécessaire et pas fun de base (la paie), est-ce que je peux p
 
 **Holy shift !**
 
-Do not go gentle Into that bullshit 
+Do not go gentle Into that bullshit
 
-Mon problème avec le design:
+Mon problème avec le design:  
 j'aime pas une techique en particulier. Ce n'est qu'un moyen pour moi et j'aurais besoin d'en maîtriser une multitude alors que la faculté que je préfère utiliser c'est la simplification, le raccourci, le détournement. C'est pour ça que j'ai du mal à me fixer, en plus de mes problèmes de concentration
 
-**upside done**
-se mettre des contraintes contre intuitives pour s'inspirer, créer , changer
+**upside done**  
+se mettre des contraintes contre intuitives pour s'inspirer, créer , changer  
 Retourner les problèmes pour les voir sous un autre angle, pour se rendre compte de ce qu'on veut pas et donc de ce qu'on veut
 
 ### Mottos
-Dissolution gurus / Sublimation seekers / Unexpected warriors
-The love bits
-Nos désirs font des hordes
-Détendez votre zone de confort
-Not leading the future of bullshit
+
+Dissolution gurus / Sublimation seekers / Unexpected warriors  
+The love bits  
+Nos désirs font des hordes  
+Détendez votre zone de confort  
+Not leading the future of bullshit  
 La maïeutique du cool
 
 Weed, rituals, running. We pick drugs that dont give us hemorroids.
 
-
 ### Méthodes
+
 crap cutting / TGIF joy bubbling / terrestrial space station / over design / convention flipping / weirdo connection
 
-A ajouter: 
-- prendre des gens de polarité opposées / complémentaires
-- faire du super réel: tout en restant dans le mock, le draft prendre des éléments concrets: pas de lorem ipsum, un vrai texte (sincère et tout). Pas de personas sortis de ma tête: des photos de gens dans la rue et une interview => Idée de se challenger sur des trucs qu'on prend pour évidents.Trouver un équilibre entre aller vite et avoir ces "petits détails" réels
-- le **ré**confort: c'est le fait de revenir dans le confort qui est kiffant. D'où l'idée de se mettre seul dans des difficultés. pour se réconforter
-- Cette sensation unique de chaleur / joie enfantine / profondeur de pensée / prolongement de soi que j'ai ressenti avec cette personne.
+A ajouter:
+
+* prendre des gens de polarité opposées / complémentaires
+* faire du super réel: tout en restant dans le mock, le draft prendre des éléments concrets: pas de lorem ipsum, un vrai texte \(sincère et tout\). Pas de personas sortis de ma tête: des photos de gens dans la rue et une interview =&gt; Idée de se challenger sur des trucs qu'on prend pour évidents.Trouver un équilibre entre aller vite et avoir ces "petits détails" réels
+* le **ré**confort: c'est le fait de revenir dans le confort qui est kiffant. D'où l'idée de se mettre seul dans des difficultés. pour se réconforter
+* Cette sensation unique de chaleur / joie enfantine / profondeur de pensée / prolongement de soi que j'ai ressenti avec cette personne.
 
 ### Outils
 
-Sites web minimalistes design et pérennes (accessibilité)
-
+Sites web minimalistes design et pérennes \(accessibilité\)
 
 Des mots chouette:
-- proposer 
-- surprendre
-- désapprendre 
 
-
+* proposer 
+* surprendre
+* désapprendre 
 
 Projet: "The terrestrial space station"
 
@@ -90,7 +93,4 @@ Y'a une idée de jeu de rôle, de SF, de mise en situation aussi derrière, etc 
 Je suis fasciné par: la profusion spontanée du végétal, survivre éthiquement aux catastrophes qui vont nous tomber sur la gueule \(à l'opposé du survivalisme, vivre en pleine nature, pas contre elle\), comprendre comment les choses fonctionnent. Mais je suis profondément un citadin.
 
 Il faut viser plus loin que l'économie circulaire et exploiter carrément la merde qu'on produit. Parce qu'on sait pertinemment qu'on atteint pas les objectifs fixés \(dans le meilleur des cas on en atteint d'autres de façon inattendu\)
-
-
-
 
