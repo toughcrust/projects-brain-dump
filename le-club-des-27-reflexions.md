@@ -66,7 +66,7 @@ Piège vicieux: même avec les meilleures intentions, identifier une forme de s�
 8 - **There is a depth in anyone's eyes**  
 Pour la ressentir pleinement, j'ai besoin de révéler avec patience et bienveillance tout ce qui nous sépare \(paradoxal non ?!\). Prenons chacun notre chemin, célébrons nos différences. Cela nous met sur la voie d'une résonance toujours plus forte, même si pour cela nous nous éloignons.
 
-9 - **Burning man ce soir**  
+9 - **Burning man ce soir, \#holidaysFeeling**  
 Je veux la californie, la libération extatique ici et maintenant. Contre le voyage compulsif, boulimique et cloisonné. Contre la drogue socialement acceptable, pour la drogue personnellement et socialement profitable.
 
 > Le véritable voyage de découverte ne consiste pas à chercher de nouveaux paysages, mais à avoir de nouveaux yeux.
@@ -139,7 +139,7 @@ Pour en revenir à l'utilité, est-ce qu'une stratégie de type "tant que person
 24 - **Etre jugé sur mes intentions. Trouver l'intention fondamentale qui nous unit.**
 
 Pourquoi j'accepte d'être jugé ? Et que je le veux même ??! parce que c'est une excellente façon de se challenger ?  
-Pourquoi c'est désagréable et que les autres nous font chier de fois ? Parce qu'ils le ofnt en cherchant à nous mettre mal à l'aise \(souvent inconsciemment\) parce que c'est plus efficace: je destabilise l'autre du coup je lui délègue la gestion de crise et la réflexion ! Si je veux juger / critiquer en **aidant **je dois chercher à comprendre les intentions de l'autre. Si je les comprends vraiment \(pourquoi ? pourquoi ? pourquoi ?\) je peux au choix discuter de façon posée et constructive de l'adéquation enre les intentions et leur concrétisation ou bien dire que je ne suis pas en phase avec l'intention de base. En profiter our creuser vers une intention commune, plus fondamentale.
+Pourquoi c'est désagréable et que les autres nous font chier de fois ? Parce qu'ils le ofnt en cherchant à nous mettre mal à l'aise \(souvent inconsciemment\) parce que c'est plus efficace: je destabilise l'autre du coup je lui délègue la gestion de crise et la réflexion ! Si je veux juger / critiquer en **aidant **je dois chercher à comprendre les intentions de l'autre. Si je les comprends vraiment \(pourquoi ? pourquoi ? pourquoi ?\) je peux au choix discuter de façon posée et constructive de l'adéquation enre les intentions et leur concrétisation ou bien dire que je ne suis pas en phase avec l'intention de base. En profiter our creuser vers une intention commune, plus fondamentale. Première question dés qu'on se sent mal à l'aise par rapport à un jugement: "Hey c'est chouette que tu t'inquiètes pour moi ! Qu''est qui t'inquiètes au juste ?"
 
 25 -  **A tale of two opposite "positive thinking"**
 
