@@ -1,9 +1,11 @@
+Construire ma tiny house, la laisser à louer / prêtée et partir fare un tour du monde pour explorer la logique des gens à travers le monde
+
 Ma qualité: de-fragmented\* constrained\*\* problem solving  
 \* I need to have a good understanding of left and right brain issues. I like to refresh how my/our brain\(s\) usually categorize things and stuff.  
 \*\* Dunno why, I often gravitate around very specific issues
 
 Moi, mes drives:  
-sauvage + futuriste. 
+sauvage + futuriste.
 
 Terrestrial space station:  
 catégoriser les idées selon masse critique, graduel ou grand saut, etc ...
