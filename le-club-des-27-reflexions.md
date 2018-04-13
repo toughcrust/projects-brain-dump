@@ -2,6 +2,14 @@ Ici, vous êtes \(💥\) / You dare here 🎉
 
 Overthink feelings, let intentions arise. and vice versa.
 
+0 - **Moteur de la "vie": briller, être solaire ?  
+**Sans motif précis, sublimer ce qu'on a ! Etre un ptit chef, avoir un beau corps: version limitée de solarité + intention sans maîtrise et sans flexibilité de mouvement =&gt; illusion de solarité. Plus généralement c'est le cas du succès tel qu'on le normalise peu ou prou. Le soleil a un impact vital sur nos vies et pourtant il n'exerce aucune pression physique \(on se protège facilement de ses radiations\)  
+
+0bis - ** L'inconscient est fait pour le rester !**
+
+Si c'est libérateur de se dire qu'on est pas le contenu de sa conscience, pourquoi être davantage le contenu de son inconscient ? La seule chose importante: fluidifiier la communication conscient / inconscient. Mais passer des heures à déchiffrer des rêves bizarres ? Bof. Soyons intrigués, ouverts et laissons les réponses émerger d'elles-mêmes non ? En attedant un ptit cookie, un café, un article marrant sur l'histoire d'un mème et une journée de travail pas abrutissante ce sera très bien.  
+Lien entre l'inconscient et les personnes mystérieuses: le fait de cacher attire l'attention et tend à faire naître des représentations encore plus subjectives ...
+
 People need to take a plane around the world and wait a year to allow themselves to relax half naked in the sun ... :D. Or speak to a random person near them :lmfao:
 
 [https://hackernoon.com/if-you-want-to-become-an-influential-thought-leader-live-by-these-3-principles-7f17cbeb25e0](https://hackernoon.com/if-you-want-to-become-an-influential-thought-leader-live-by-these-3-principles-7f17cbeb25e0)  
