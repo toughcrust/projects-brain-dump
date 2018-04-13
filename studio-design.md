@@ -1,10 +1,10 @@
 écrire:
 
-https://www.invisionapp.com/blog/writing-tips-for-non-writers/
+[https://www.invisionapp.com/blog/writing-tips-for-non-writers/](https://www.invisionapp.com/blog/writing-tips-for-non-writers/)
 
-https://www.invisionapp.com/blog/narrative-in-ux-design/
+[https://www.invisionapp.com/blog/narrative-in-ux-design/](https://www.invisionapp.com/blog/narrative-in-ux-design/)
 
-https://medium.com/designers-interactifs/ux-writer-le-poids-des-mots-le-choc-des-protos-9843902b36bf
+[https://medium.com/designers-interactifs/ux-writer-le-poids-des-mots-le-choc-des-protos-9843902b36bf](https://medium.com/designers-interactifs/ux-writer-le-poids-des-mots-le-choc-des-protos-9843902b36bf)
 
 Input au design: formuler une contradiction intéressante
 
@@ -14,13 +14,13 @@ marie mes deux passions: compétition économique, WTF et LOL
 
 Insight  
 //Understanding the problem at hand  
-Saturation   
+Saturation  
 //Absorbing information and inspiration  
 Incubation  
 //Allowing your mind to piece together ideas  
-Illumination   
+Illumination  
 //The cliché light bulb moment  
-Verification   
+Verification  
 //Filtering solutions and making things work  
 Exploration  
 //Moving deeper through ideas and solutions
@@ -28,7 +28,7 @@ Exploration
 **Tests d'intrusion UX**  
 Est-ce que ton service / produit est vraiment nécessaire / cool ?  
 Comment je peux m'en passer, le hacker, en faire une copie cheap, faire plus marrant, combiner avec un autre besoin que j'ai ?  
-Si c'est vraiment nécessaire et pas fun de base \(la paie\), est-ce que je peux pas en fait en faire une activité cool ? **revenir au coeur de ce qui me fait kiffer  
+Si c'est vraiment nécessaire et pas fun de base \(la paie\), est-ce que je peux pas en fait en faire une activité cool ? **revenir au coeur de ce qui me fait kiffer    
 **, de pourquoi j'ai accepté de me laisser entraîner dans ce boulot de RH plutôt qu'une autre prison. Reprendre le flambeau et me réinventer en, paradoxalement, revenant à mes fondements.
 
 ### Noms
@@ -69,6 +69,14 @@ A ajouter:
 * faire du super réel: tout en restant dans le mock, le draft prendre des éléments concrets: pas de lorem ipsum, un vrai texte \(sincère et tout\). Pas de personas sortis de ma tête: des photos de gens dans la rue et une interview =&gt; Idée de se challenger sur des trucs qu'on prend pour évidents.Trouver un équilibre entre aller vite et avoir ces "petits détails" réels
 * le **ré**confort: c'est le fait de revenir dans le confort qui est kiffant. D'où l'idée de se mettre seul dans des difficultés. pour se réconforter
 * Cette sensation unique de chaleur / joie enfantine / profondeur de pensée / prolongement de soi que j'ai ressenti avec cette personne.
+
+> L’outil est convivial dans la mesure où chacun peut l’utiliser, sans difficulté, aussi souvent ou aussi rarement qu’il le désire, à des fins qu’il détermine lui-même. L’usage de chacun n’empiète pas sur la difficulté d’autrui d’en faire autant. Personne n’a besoin d’un diplôme pour s’en servir, on peut le prendre ou non. Entre l’homme et le monde, il est conducteur de sens, traducteur d’intentionnalité »
+
+_Illich, La Convivialité_
+
+dans fiche de lecture HEC:
+
+> C'est la perversion de l'outil qui est à l'orgine de la crise actuelle. On a voullu se servir de l'outil pour remplacer l'esclave, mais c'est l'esclavage de l'homme par l'outil qui s'est réellment produit.On est passé d'une relation de l'outil à l'homme d'une relation de l'homme à l'outil. Dans cette situation , l'homme doit adapter son rythme de vie à l'outil.
 
 ### Outils
 

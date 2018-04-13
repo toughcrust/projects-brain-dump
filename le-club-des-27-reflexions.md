@@ -154,13 +154,11 @@ Quand le corps va mal \(typiquement digestion\) ou au contraire trop bien \(des 
 
 Et par définition puisque l'inconscient est impliqué va chercher la rationnalité, la "bonne approche" ...
 
-27 - **La tragédie des communs en psycho: cacher ses difficultés**
+27 - **The tragedy of hidden common tragedies: cacher ses difficultés**
 
-En fait y'a une vraie tragédie des communs ! On souffre quand il nous semble que la vie est moins difficile pour les autres \(ils réussissent avec moins d'efforts\). En plus de s'auto-dévaloriser, on craint l'exclusion s'ils savent que c'est bien plus compliqué que ce que l'on veut bien montrer =&gt; on cache d'autant plus ! Vrai externalité positive pour la société à parler de ses "vrais" échecs \(des choses que l'on a pas transformés pour paraître, que l'on ressent toujours comme un échec\) =&gt; parler de l'échec quand il est encore en cours. 
+En fait y'a une vraie tragédie des communs ! On souffre quand il nous semble que la vie est moins difficile pour les autres \(ils réussissent avec moins d'efforts\). En plus de s'auto-dévaloriser, on craint l'exclusion s'ils savent que c'est bien plus compliqué que ce que l'on veut bien montrer =&gt; on cache d'autant plus ! Vrai externalité positive pour la société à parler de ses "vrais" échecs \(des choses que l'on a pas transformés pour paraître, que l'on ressent toujours comme un échec\) =&gt; parler de l'échec quand il est encore en cours.
 
 **/!\** 28 - **Coop VS hiérarchie: s'aventurer hors des sentiers battus**
 
-Dans la coop, ou la réinvention permanente de ses rapports avec les autres, il faut se repérer. C'est cool dans le sens \#holidaysFeeling, par contre ça demande un surplus d'énergie et d'attention portée à la relation. 
-
-
+Dans la coop, ou la réinvention permanente de ses rapports avec les autres, il faut se repérer. C'est cool dans le sens \#holidaysFeeling, par contre ça demande un surplus d'énergie et d'attention portée à la relation.
 
