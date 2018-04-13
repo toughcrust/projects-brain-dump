@@ -1,3 +1,9 @@
+Besoin global de concentrer son attention sur LA chose importante à digérer pour justement bien la digérer. Epuiser le besoin de nourrir / faire. 
+
+Titre de mon bouquin \(on y revient !\): Défragmentation, overthinking, convivialité, solarité
+
+Bien se défragmenter: Passe par la capacité à accueillir en moi ce qui est fragmenté sans chercher à le changer. Ex la partie de moi qui veut vivre de manière insouciante et delibérément fragmentée
+
 Construire ma tiny house, la laisser à louer / prêtée et partir fare un tour du monde pour explorer la logique des gens à travers le monde
 
 Ma qualité: de-fragmented\* constrained\*\* problem solving  

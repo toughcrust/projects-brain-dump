@@ -2,8 +2,21 @@ Ici, vous êtes \(💥\) / You dare here 🎉
 
 Overthink feelings, let intentions arise. and vice versa.
 
-0 - **Moteur de la "vie": briller, être solaire ?  
-**Sans motif précis, sublimer ce qu'on a ! Etre un ptit chef, avoir un beau corps: version limitée de solarité + intention sans maîtrise et sans flexibilité de mouvement =&gt; illusion de solarité. Plus généralement c'est le cas du succès tel qu'on le normalise peu ou prou. Le soleil a un impact vital sur nos vies et pourtant il n'exerce aucune pression physique \(on se protège facilement de ses radiations\)  
+**Schématiquement, ce que "je suis" ?  
+**Très grossièrement, pour l'XP de pensée ici, je suis:  
+- Des intentions \("de plaisir" !!?? la question se pose ! autant dans le corps tout me parait plaisir de façon ultime, autant y'a-t-il du plaisir dans nos intentions "spirituelles" ?\)  
+- Un corps  
+- Une "conscience" en apparence très passive, qui doit gérer le corps et dont le pouvoir semble résider dans la capacité à s'auto identifier et faire le calme / digérer pour manifester les intentions spirituelles
+
+  
+
+
+Que suis-je \(le plus ?\) de ces 3 ???
+
+
+
+0 - **Moteur de la "vie": briller, être solaire ?      
+**Sans motif précis, sublimer ce qu'on a ! Etre un ptit chef, avoir un beau corps: version limitée de solarité + intention sans maîtrise et sans flexibilité de mouvement =&gt; illusion de solarité. Plus généralement c'est le cas du succès tel qu'on le normalise peu ou prou. Le soleil a un impact vital sur nos vies et pourtant il n'exerce aucune pression physique \(on se protège facilement de ses radiations\)
 
 0bis - ** L'inconscient est fait pour le rester !**
 
@@ -26,7 +39,7 @@ People need to take a plane around the world and wait a year to allow themselves
 2 - **Big data dans le cerveau**
 
 * Nécessité de créer une cohérence pour aider à la décision: donc compromis entre exactitude, hypothèses foules, rapidité \(et efficacité. Une mauvaise décision qu'on rattrappe est des fois plus efficace qu'une bonne décision trop tardive ou prise dans un environnement finalement hostile\)
-* Ré-examination permanente des données collectées, des manières dont elles ont été traitées afin de mettre à jour les principes \(= clichés et préjugés\). Si on est capable de réintroduire proprement ses problèmes \(pas juste recracher l'introduction\) on resitue le problème à la racine et on trouve souvent les réponses dans la reformulation.
+* Ré-examination permanente des données collectées, des manières dont elles ont été traitées afin de mettre à jour les principes \(= **labels ! **ou mots clés, comme sur Google ou une app\). Si on est capable de réintroduire proprement ses problèmes \(pas juste recracher l'introduction\) on resitue le problème à la racine et on trouve souvent les réponses dans la reformulation.
 * Evidemment un équilibre à trouver entre le vertige du questionnement qui permet d'appréhender ce qui nous entoure mais paralyse. Est-ce que c'est cette sensation qu'on trouve et recherche dans l'extase du voyage ? 
 * Le langage est dans cet équilibre: en même temps un incroyable **échaffaudage** pour la pensée \(essaie de penser sans !\), en même temps une **stérilisation** du sens. Quand je dis "arbre", ça ne correspond à aucune réalité, c'est une nouvelle entité, un truc vague et sans émotion\). 
 
