@@ -19,6 +19,11 @@ Aider celui qui souffre à mettre à jour ses "sweet contradictory patterns of n
 **Narrative labels de slow food**
 
 Pas le temps de lire plus de 2 phrases sur une étiquette =&gt; j'ai besoin d'une photo de comparaison avec un produit conventionnel qui met en évidence une différence significative \(diff de revenu, préservation envi, beau ptit bâteau de pêche ...\).  
-**Idée à tirer du financement collaboratif ??? =&gt; Les "récompenses en nature ??" SI j'achète plein de produits aux externalités positives, je cumule des points ! Après quand je vais en vacances, j'utilise ces points auprès des pêcheurs, maraîchers locaux, etc... pour qu'ils me montrent leur travail, pour avoir une expérience concrète de l'impact de la nourriture sur le monde.  
-=&gt; Récompense / gratification immédiate à l'achat du "bon geste" qu'on verra se concrétiser plus tard ! **
+Idée à tirer du financement collaboratif ??? =&gt; Les "récompenses en nature ??" SI j'achète plein de produits aux externalités positives, je cumule des points ! Après quand je vais en vacances, j'utilise ces points auprès des pêcheurs, maraîchers locaux, etc... pour qu'ils me montrent leur travail, pour avoir une expérience concrète de l'impact de la nourriture sur le monde.  
+=&gt; Récompense / gratification immédiate à l'achat du "bon geste" qu'on verra se concrétiser plus tard !   
+**EDIT**: nope aucun système tracé de récompense c'est pas un outil convivial. Par contre un macaron sur les produits type "**supplément d'âme**" qui **décrit UN aspect dans lequel le maraîcher, pêcheur, etc. est engagé** et tout le monde peut aller visiter la dite exploitation voir comment ça se passe en vrai ! Tout le monde y gagne.
+
+**Revenu universel ou ses alternatives pour des intentions similaires**
+
+Plus simple que le revenu universel en responsabilisant: les salaires sont publiques. Les entreprises qui pratiquent des écarts de salaire importants sont taxées ?
 
