@@ -2,22 +2,25 @@ Ici, vous êtes \(💥\) / You dare here 🎉
 
 Overthink feelings, let intentions arise. and vice versa.
 
+Ma vie c'est l'histoire d'un debug ! Et de hacks pour me réécrire de manière plus simple. 
+
 **Sur "vivre son utopie" / "Be weird" / "Hippie like a pro"**
 
-Déjà 1/ trouver des noms qui sonnent moins extrême =&gt; il ne s'agit pas d'une attitude marginale, c'st en fait logique, un impératif moral et ça fait du bien à tous et en 2/ ne veut pas dire qu'on a toutes les clés. Comme si je savais exactement ce que je créais. non je sais l'émotion que je veux voir émerger de ce que je créé, je je sais l'INYENTION que j'ai envie de mettre. 
+Déjà 1/ trouver des noms qui sonnent moins extrême =&gt; il ne s'agit pas d'une attitude marginale, c'st en fait logique, un impératif moral et ça fait du bien à tous et en 2/ ne veut pas dire qu'on a toutes les clés. Comme si je savais exactement ce que je créais. non je sais l'émotion que je veux voir émerger de ce que je créé, je je sais l'INYENTION que j'ai envie de mettre.
 
-OHOH !!! INTENTIONALITE ??!! c'est pas mal. Et donc pour poursuivre, si je vis avec "intention":  
-- J'exprime mes intentions aux autres pour qu'ils m'aident \(ne pas forcément chercher à faire, être d'abord\)  
-- J'aide les autres dans la réalisation de leurs intentions compatibles aux miennes =&gt; c'est l'idée du travailleur rémunérateur / épanouissant. Et du fait qu'un regard extérieur  aide à matérialiser la pensée.  
-L'intention est fragile, subtile au départ. Elle demande à être accueillie dans un cadre serein \(= méditation, sécurité émotionnelle / financière\). Dans la plus grande partie de nos vies, l'intention est masquée par un besoin de faire face à ce que nous ne voulons pas: ce que le monde extérieur impose comme forme. Et si on a pas l'idée qu'une intentionnalité personnelle est possible et désirable, ce conditionnement de "réaction au négatif" persiste comme seul maître à bord. Libéré physiquement de ses chaînes, on y est toujours mentalement attaché  
-Je suis un "intention seeker". Je collabore avec des gens dont le "succès" est le moteur pour mettre de l'intention dans leur capacité à mettre le monde en mouvement.
+OHOH !!! INTENTIONALITE ??!! c'est pas mal. Et donc pour poursuivre, si je vis avec "intention":
+
+* J'exprime mes intentions aux autres pour qu'ils m'aident \(ne pas forcément chercher à faire, être d'abord\)  
+* J'aide les autres dans la réalisation de leurs intentions compatibles aux miennes =&gt; c'est l'idée du travailleur rémunérateur / épanouissant. Et du fait qu'un regard extérieur  aide à matérialiser la pensée.  
+  L'intention est fragile, subtile au départ. Elle demande à être accueillie dans un cadre serein \(= méditation, sécurité émotionnelle / financière\). Dans la plus grande partie de nos vies, l'intention est masquée par un besoin de faire face à ce que nous ne voulons pas: ce que le monde extérieur impose comme forme. Et si on a pas l'idée qu'une intentionnalité personnelle est possible et désirable, ce conditionnement de "réaction au négatif" persiste comme seul maître à bord. Libéré physiquement de ses chaînes, on y est toujours mentalement attaché  
+  Je suis un "intention seeker". Je collabore avec des gens dont le "succès" est le moteur pour mettre de l'intention dans leur capacité à mettre le monde en mouvement.
 
 Je crois qu'une partie de moi estimera toujours que de ne pas être dans l'action est un échec. Est-ce utile pour me garder motivé ? Sinon est-ce que je suis capable d'accepter l'idée que je ne serai jamais dans le "faire" mais probablement toujours plus à l'aise dans les paroles. Dépasser la vision commune \(que pour l'instant je partage\) qui voit dans cette dissociation faire / dire un manque de réalisme.
 
 Mais en fait si mon but est de voir l'intention s'incarner, on peut mesurer "à la fin" si oui ou non ça a marché: est-ce que l'intention, le moteur spirituel initial est assouvi ? Et ma contribution est "jugeable" dans la correspondance entre le script initial du scénario \("Tu vas ouvrir une épicerie solidaire ou 1 article acheté = 1 café offert à un inconnu. Intention de provoquer de manière positive, ça répondra à ton besoin de connection"\) au témoignag final \("J'adore l'émotion que ça provoque d'offrir ce petit café aux gens. D'un coup je les vois sortir de leur attitude robotique, de leur quotidien et c'est comme si leur âme re-pénétrait leur corps. Tout ça en étant ici et maintenant, dans ma petite boutique modeste de banlieue parisienne."\)  
-**Joli article médium à faire. "May i have your intention ?" A mixer avec Jacques Salomé sur la communication? **
+**Joli article médium à faire. "May i have your intention ?" A mixer avec Jacques Salomé sur la communication? **
 
-**Schématiquement, ce que "je suis" ?    
+**Schématiquement, ce que "je suis" ?      
 **Très grossièrement, pour l'XP de pensée ici, je suis:
 
 * Des intentions \("de plaisir" !!?? la question se pose ! autant dans le corps tout me parait plaisir de façon ultime, autant y'a-t-il du plaisir dans nos intentions "spirituelles" ?\)  
@@ -26,7 +29,7 @@ Mais en fait si mon but est de voir l'intention s'incarner, on peut mesurer "à 
 
 Que suis-je \(le plus ?\) de ces 3 ???
 
-0 - **Moteur de la "vie": briller, être solaire ?        
+0 - **Moteur de la "vie": briller, être solaire ?          
 **Sans motif précis, sublimer ce qu'on a ! Etre un ptit chef, avoir un beau corps: version limitée de solarité + intention sans maîtrise et sans flexibilité de mouvement =&gt; illusion de solarité. Plus généralement c'est le cas du succès tel qu'on le normalise peu ou prou. Le soleil a un impact vital sur nos vies et pourtant il n'exerce aucune pression physique \(on se protège facilement de ses radiations\)
 
 0bis - ** L'inconscient est fait pour le rester !**
