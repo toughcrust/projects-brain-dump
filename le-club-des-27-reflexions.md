@@ -1,5 +1,9 @@
 Ici, vous êtes \(💥\) / You dare here 🎉
 
+Ma série d'artcles Medium s'intitulera** Questions ?**. En vrai je déteste les réponses. J'aime bien essayer mais dés que je donne une réponse c'est comme si j'étais projeté dans l'univers cohérent où cette réponse n'est plus en adéquat
+
+
+
 Higher intelligence or not  
 Neatly planned / organized own life or universe  
 It does not change a thing  
@@ -30,7 +34,7 @@ Je crois qu'une partie de moi estimera toujours que de ne pas être dans l'actio
 Mais en fait si mon but est de voir l'intention s'incarner, on peut mesurer "à la fin" si oui ou non ça a marché: est-ce que l'intention, le moteur spirituel initial est assouvi ? Et ma contribution est "jugeable" dans la correspondance entre le script initial du scénario \("Tu vas ouvrir une épicerie solidaire ou 1 article acheté = 1 café offert à un inconnu. Intention de provoquer de manière positive, ça répondra à ton besoin de connection"\) au témoignag final \("J'adore l'émotion que ça provoque d'offrir ce petit café aux gens. D'un coup je les vois sortir de leur attitude robotique, de leur quotidien et c'est comme si leur âme re-pénétrait leur corps. Tout ça en étant ici et maintenant, dans ma petite boutique modeste de banlieue parisienne."\)  
 **Joli article médium à faire. "May i have your intention ?" A mixer avec Jacques Salomé sur la communication? **
 
-**Schématiquement, ce que "je suis" ?        
+**Schématiquement, ce que "je suis" ?          
 **Très grossièrement, pour l'XP de pensée ici, je suis:
 
 * Des intentions \("de plaisir" !!?? la question se pose ! autant dans le corps tout me parait plaisir de façon ultime, autant y'a-t-il du plaisir dans nos intentions "spirituelles" ?\)  
@@ -39,7 +43,7 @@ Mais en fait si mon but est de voir l'intention s'incarner, on peut mesurer "à 
 
 Que suis-je \(le plus ?\) de ces 3 ???
 
-0 - **Moteur de la "vie": briller, être solaire ?            
+0 - **Moteur de la "vie": briller, être solaire ?              
 **Sans motif précis, sublimer ce qu'on a ! Etre un ptit chef, avoir un beau corps: version limitée de solarité + intention sans maîtrise et sans flexibilité de mouvement =&gt; illusion de solarité. Plus généralement c'est le cas du succès tel qu'on le normalise peu ou prou. Le soleil a un impact vital sur nos vies et pourtant il n'exerce aucune pression physique \(on se protège facilement de ses radiations\)
 
 0bis - ** L'inconscient est fait pour le rester !**
@@ -206,4 +210,10 @@ En fait y'a une vraie tragédie des communs ! On souffre quand il nous semble qu
 **/!\** 28 - **Coop VS hiérarchie: s'aventurer hors des sentiers battus**
 
 Dans la coop, ou la réinvention permanente de ses rapports avec les autres, il faut se repérer. C'est cool dans le sens \#holidaysFeeling, par contre ça demande un surplus d'énergie et d'attention portée à la relation.
+
+**/!\** 29 - **Feeling allowed to be weird and detachment from ghost duties**
+
+La bizarreté, faire des trucs qui sortent du commun \(moi qui court en sandale, se baigne dans le bassin de la Vilette et médite\) quand on se sent bien ça n'a rien de ouf dans l'absolu. Mais pour la quqsi totalité des gens \(moi inclus même n l'ayant déjà !\) il y a un inconfort une surprise **à s'autoriser **un peu de folie, de sauvage en dehors d'un **cadre légal / autorisé bien défini** \(les vacances, un club de sport, un groupe\). Je pense qu'il y a un lien fort et difficile à conscientiser avec le début de notre vie à tous: **we obey without questionning, we quickly learn to refrain our craze for exploration without understanding why** !!! Quand on y pense, on se rend compte qu'on continue de s'empêcher de tester des choses de manière un peu floue: on a gardé ce conditionnement et il est d'autant plus difficile qu'on a raremnt eu d'explications rationnelles. Et en même temps on voit bien qu'il fut surveiller les enfants en permanence si on les aime. Comment reprendre la main sur ce comportement profondément enraciné ? Et qui donc est profondément structurant de notre personnalité et, plus prosaïquement, de l'organisation de notre vie quotidienne \(ce qui en vrai est ptet plus important !\).
+
+
 
