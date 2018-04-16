@@ -1,8 +1,10 @@
 Ici, vous êtes \(💥\) / You dare here 🎉
 
+LA combativité avec Antoine de Maximy: la combativité ça se remarque comme qualité. Si t'auras pas ce que tu veux, t'auras quand même autre chose.
+
 Ma série d'artcles Medium s'intitulera** Questions ?**. En vrai je déteste les réponses. J'aime bien essayer mais dés que je donne une réponse c'est comme si j'étais projeté dans l'univers cohérent où cette réponse n'est plus en adéquat
 
-Y'a-t-il une peur devant laquelle il est plus sain de se résigner ? Pourquoi je dis ça ? ex: la peur de voir un proche mourir ça me mine. Mais pourquoi me résigner à la fatalité de la tristesse imaginée. Même si je sais que ça n'a aucun sens: ça m'exalte de me dire que je me battrai contre cette mort. Contre l'idée même de la mort. Putain cte vertige de la rébellion... Mais tellement bon ... Rien à voir avec l'affirmation aveugle que je peux vaincre la mort: l'énergie de** refuser que je ne peux pas.** 
+Y'a-t-il une peur devant laquelle il est plus sain de se résigner ? Pourquoi je dis ça ? ex: la peur de voir un proche mourir ça me mine. Mais pourquoi me résigner à la fatalité de la tristesse imaginée. Même si je sais que ça n'a aucun sens: ça m'exalte de me dire que je me battrai contre cette mort. Contre l'idée même de la mort. Putain cte vertige de la rébellion... Mais tellement bon ... Rien à voir avec l'affirmation aveugle que je peux vaincre la mort: l'énergie de** refuser que je ne peux pas.**
 
 Dans "**trucs et astuces pour une société cool**" ?  
 Dishwashing: do a extra plate !
@@ -37,7 +39,7 @@ Je crois qu'une partie de moi estimera toujours que de ne pas être dans l'actio
 Mais en fait si mon but est de voir l'intention s'incarner, on peut mesurer "à la fin" si oui ou non ça a marché: est-ce que l'intention, le moteur spirituel initial est assouvi ? Et ma contribution est "jugeable" dans la correspondance entre le script initial du scénario \("Tu vas ouvrir une épicerie solidaire ou 1 article acheté = 1 café offert à un inconnu. Intention de provoquer de manière positive, ça répondra à ton besoin de connection"\) au témoignag final \("J'adore l'émotion que ça provoque d'offrir ce petit café aux gens. D'un coup je les vois sortir de leur attitude robotique, de leur quotidien et c'est comme si leur âme re-pénétrait leur corps. Tout ça en étant ici et maintenant, dans ma petite boutique modeste de banlieue parisienne."\)  
 **Joli article médium à faire. "May i have your intention ?" A mixer avec Jacques Salomé sur la communication? **
 
-**Schématiquement, ce que "je suis" ?                
+**Schématiquement, ce que "je suis" ?                  
 **Très grossièrement, pour l'XP de pensée ici, je suis:
 
 * Des intentions \("de plaisir" !!?? la question se pose ! autant dans le corps tout me parait plaisir de façon ultime, autant y'a-t-il du plaisir dans nos intentions "spirituelles" ?\)  
@@ -46,7 +48,7 @@ Mais en fait si mon but est de voir l'intention s'incarner, on peut mesurer "à 
 
 Que suis-je \(le plus ?\) de ces 3 ???
 
-0 - **Moteur de la "vie": briller, être solaire ?                    
+0 - **Moteur de la "vie": briller, être solaire ?                      
 **Sans motif précis, sublimer ce qu'on a ! Etre un ptit chef, avoir un beau corps: version limitée de solarité + intention sans maîtrise et sans flexibilité de mouvement =&gt; illusion de solarité. Plus généralement c'est le cas du succès tel qu'on le normalise peu ou prou. Le soleil a un impact vital sur nos vies et pourtant il n'exerce aucune pression physique \(on se protège facilement de ses radiations\)
 
 0bis - ** L'inconscient est fait pour le rester !**
