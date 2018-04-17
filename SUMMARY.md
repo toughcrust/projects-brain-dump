@@ -8,7 +8,7 @@
 * [UX / design / boulot](005-design.md)
 * [Vacances coolos](006-vacances.md)
 * [Trucs ésotériques](007-esoterique.md)
-* [Agenda politique](agenda-politique.md)
+* [Agenda politique](008-politique.md)
 * [Son / techno / méditation](musique-technologie-meditation.md)
 * [Participatif](cooperative.md)
 * [Ukulele](ukulele.md)

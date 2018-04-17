@@ -1,3 +1,5 @@
+Identification des processus de transformation. De leurs responsables et de leurs externalités + et négatives.
+
 Utilisation de blockchain pour tracer les échanges financiers: se rendre compte d'à quoi sert notre argent: j'ai payé 1000€ à une entreprise qui utilise massivement de la main d'oeuvre exploitée 
 
 revenir à la base des échanges d'argent / de la dette:
