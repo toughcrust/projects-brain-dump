@@ -11,7 +11,7 @@
 * [Agenda politique](008-politique.md)
 * [Son / techno / méditation](009-meditation.md)
 * [Ukulele](010-ukulele.md)
-* [Trucs en groupe](011-groupes.md)
+* [Convivial !](011-convivial.md)
 * [Bricolage survivalistico-convivialiste](minimalisme.md)
 * [Sport](raw-sport.md)
 * [Idées à donner](idees-a-donner.md)
