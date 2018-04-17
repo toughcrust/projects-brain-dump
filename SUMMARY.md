@@ -2,9 +2,9 @@
 
 * [En vrac](README.md)
 * [Hmm ça a l'air cool](001-cool.md)
-* [Bored ? Tada !](bored-tada.md)
-* [Hey c'était cool](trucs-qui-mont-marque.md)
-* [Le club des 27 \(réflexions\)](le-club-des-27-reflexions.md)
+* [Bored ? Tada !](002-bored.md)
+* [Hey c'était cool](003-was-cool.md)
+* [Le club des 27 \(réflexions\)](004-club-27.md)
 * [UX / design / boulot](studio-design.md)
 * [Vacances coolos](mega-road-trip.md)
 * [Trucs ésotériques](signes-des-astres.md)
