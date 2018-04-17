@@ -1,6 +1,4 @@
-Morning routine idea: cycle randomly and go read somewhere \(genre parc monceau !\).
-
-
+Morning routine idea: cycle randomly and go read somewhere \(genre parc monceau !\). **Or draw !**
 
 Besoin global de concentrer son attention sur LA chose importante à digérer pour justement bien la digérer. Epuiser le besoin de nourrir / faire.
 
