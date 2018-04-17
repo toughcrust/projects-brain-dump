@@ -67,5 +67,15 @@ Fuck me. litterally.
 
 > Fear is your growth agent in disguise, only if you choose fight over flight. It compels you to up your game to survive.
 
+**Sam Harris**
+
+> Consciousness is simply the light by which the contours of mind and body are known \[...\] Making this discovery, again and again, is the basis of spiritual life.
+
+**Oscar Wilde**
+
+> Pleasure is the only thing worth having a theory about
+
+
+
 
 
