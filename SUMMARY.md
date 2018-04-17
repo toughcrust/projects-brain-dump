@@ -12,10 +12,8 @@
 * [Son / techno / méditation](009-meditation.md)
 * [Ukulele](010-ukulele.md)
 * [Convivial !](011-convivial.md)
-* [Bricolage survivalistico-convivialiste](minimalisme.md)
-* [Sport](raw-sport.md)
-* [Idées à donner](idees-a-donner.md)
-- [Vrac de citations et réflexions](le-cimetiere-des-emanations-de-mon-cerveau.md)
+* [Idées à donner](012-idees.md)
+- [Vrac de citations et réflexions](013-citations.md)
 
 
 
