@@ -1,7 +1,7 @@
 # Summary
 
 * [En vrac](README.md)
-* [Hmm ça a l'air cool](chapter1.md)
+* [Hmm ça a l'air cool](001-cool.md)
 * [Bored ? Tada !](bored-tada.md)
 * [Hey c'était cool](trucs-qui-mont-marque.md)
 * [Le club des 27 \(réflexions\)](le-club-des-27-reflexions.md)
