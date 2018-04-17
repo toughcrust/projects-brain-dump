@@ -1,3 +1,8 @@
+Avec les hacks de vie en société cools: le street art à la banksy qui détourne la merde pour créer de l'émotion et du lien
+
+Sur la beauté dans la relation amoureuse et ses "dangers": c'est comme un Putain de paysage à couper le souffle. Donc: C'est un Putain de plaisir pourquoi s'en priver. Trop planifier ou s'y attacher détourne de l'émotion de uprooting qui est LA drogue cherchée. Se rendre compte que c'est une drogue  
+
+
 Morning routine idea: cycle randomly and go read somewhere \(genre parc monceau !\). **Or draw !**
 
 Besoin global de concentrer son attention sur LA chose importante à digérer pour justement bien la digérer. Epuiser le besoin de nourrir / faire.
