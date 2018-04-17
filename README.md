@@ -1,7 +1,8 @@
+Truc pas évident sur lequel il faut que je réfléchisse: quand se donner à fond ou au contraire quand éviter ? Ex: au niveau bouffe je gagne à re moins nazi avec moi -même \(jeûne strict, quasi vegan, pas d'emballage ...\) rien que parce que tout le stress généré est au moins néfaste sur l'aspect santé. A l'inverse, avoir une vision perfectioniste dans le boulot par ex m'a apporté beaucoup de satisfaction / fierté. **En l'écrivant, je m'aperçois que c'est peut être là la différence: entre un perfectionnisme un peu aveugle, basé sur des principes rigides, et un perfectionnisme en quête de sens, d'accomplissement qui au contraire s'actroie une souplesse quasi sans bornes**. 
+
 Avec les hacks de vie en société cools: le street art à la banksy qui détourne la merde pour créer de l'émotion et du lien
 
-Sur la beauté dans la relation amoureuse et ses "dangers": c'est comme un Putain de paysage à couper le souffle. Donc: C'est un Putain de plaisir pourquoi s'en priver. Trop planifier ou s'y attacher détourne de l'émotion de uprooting qui est LA drogue cherchée. Se rendre compte que c'est une drogue  
-
+Sur la beauté dans la relation amoureuse et ses "dangers": c'est comme un Putain de paysage à couper le souffle. Donc: C'est un Putain de plaisir pourquoi s'en priver. Trop planifier ou s'y attacher détourne de l'émotion de uprooting qui est LA drogue cherchée. Se rendre compte que c'est une drogue
 
 Morning routine idea: cycle randomly and go read somewhere \(genre parc monceau !\). **Or draw !**
 
