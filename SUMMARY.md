@@ -15,4 +15,9 @@
 * [Bricolage survivalistico-convivialiste](minimalisme.md)
 * [Sport](raw-sport.md)
 * [Idées à donner](idees-a-donner.md)
+- [Vrac de citations et réflexions](le-cimetiere-des-emanations-de-mon-cerveau.md)
+
+
+
+
 
