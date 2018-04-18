@@ -1,8 +1,17 @@
+Coopération VS domination: en fait, j'ai tellement d'ambitions, je voudrais maîtriser tout, que la coopération est une réponse. C'est une adaptation à une domination tellement prenante qu'on préfèr déléguer en permanence. Redonne de l'ambition à la coop. C'est un truc de leader en fait. Et quand on "agit pour le bien commun" on oeuvre en fait à la réussite de ses propres projets. RIEN D'ALTRUISTE LA DEDANS \(l'altruisme existe-t-l ?\).
+
+**Pourquoi tu cours pieds nus ? Pourquoi tu manges des graines germées ?  
+**Y'a un faisceau d'idées pas forcément concordantes qui m'attirent \(et que j'ai pas forcément en tête !\). D'abord c'est un test, pas une règle dure. Je me suis lancé là dedans avec l'intuition que:  
+- c'est pas une perte de temps  
+- c'est pas dangereux pour moi en y allant doucement  
+- j'ai quelque chose à en apprendre / C'est fun  
+**Ce qui peut être chiant: mon cerveau qui tente absolumnt de rationaliser, faire converger, justifier mes actions. Est-ce que je peux hacker ce comportement qui est au coeur d'une vie non "mindful" ?**
+
 Anxiété, stress: à combattre par l'attntion ou au contraire un appel à se détendre complètement le trou de balle & "channel what the universe is calling you for"
 
 **Sur le sens de la vie, encore !  
 A l'échelle de moi-même, pas trop de questions: je ressens du plaisir je fonce, j'ai mal je réfléchis à ce que je fais. **Ca devient perturbant si je me rends compte qu'il y a d'autres êtres dans le même cas. Qui me font découvrrir d'autres principes de plaisir! 1er coup de bambou ! Et l'univers tout entier lui ? Est-ce que son organisation né d'un principe de plaisir comme dans ma vie ou alors il est aléatoire \(et on vit sur une planète bien singulière ...\)  
-=&gt; Ces deux trucs **me dépossèdent **de ma propre essence de plaisir, ou m'en font m'écarter prudemment** **\(sans parler de l'illusion du soi et de l'inconscient\). Or c'est la boussole ! Que veut-on vraiment quand on demande le "sens de la vie" ? Je crois qu'on veut en vrai être rassuré sur le fait que notre principe de plaisir le plus prometteur à ce moment là ne va pas nous trahir salement. 
+=&gt; Ces deux trucs **me dépossèdent **de ma propre essence de plaisir, ou m'en font m'écarter prudemment** **\(sans parler de l'illusion du soi et de l'inconscient\). Or c'est la boussole ! Que veut-on vraiment quand on demande le "sens de la vie" ? Je crois qu'on veut en vrai être rassuré sur le fait que notre principe de plaisir le plus prometteur à ce moment là ne va pas nous trahir salement.
 
 Truc pas évident sur lequel il faut que je réfléchisse: quand se donner à fond ou au contraire quand éviter ? Ex: au niveau bouffe je gagne à re moins nazi avec moi -même \(jeûne strict, quasi vegan, pas d'emballage ...\) rien que parce que tout le stress généré est au moins néfaste sur l'aspect santé. A l'inverse, avoir une vision perfectioniste dans le boulot par ex m'a apporté beaucoup de satisfaction / fierté. **En l'écrivant, je m'aperçois que c'est peut être là la différence: entre un perfectionnisme un peu aveugle, basé sur des principes rigides, et un perfectionnisme en quête de sens, d'accomplissement qui au contraire s'actroie une souplesse quasi sans bornes**.
 
