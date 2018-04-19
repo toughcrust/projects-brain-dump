@@ -1,10 +1,12 @@
+D'où vient cette croyance / pression d'être dans l'action / le succès ? Et passe juste être dans le flow et se laisser porter ? Ce qui ne veut absolument pas dire être un légume, bien au contraire. Atteindre cette légèreté de la maîtrise qui nous rend capable de partir d'un jour à l'autre.
+
 **23h - **à partir de 23h plus de lumière, 0 stress, 0 bruit, 0 lumière. Avant ça stresse complet possible. Mais se dire que de 23h à 7h du mat' c'est en mode vide le plus total =&gt; C'est pas impressionant niveau temps t y'a vachement à y gagner ...
 
 Végétaliser la ville: mélanger le sauvage, le non contrôlé avec le désir de maîtrise de l'H
 
 Coopération VS domination: en fait, j'ai tellement d'ambitions, je voudrais maîtriser tout, que la coopération est une réponse. C'est une adaptation à une domination tellement prenante qu'on préfèr déléguer en permanence. Redonne de l'ambition à la coop. C'est un truc de leader en fait. Et quand on "agit pour le bien commun" on oeuvre en fait à la réussite de ses propres projets. RIEN D'ALTRUISTE LA DEDANS \(l'altruisme existe-t-l ?\).
 
-**Pourquoi tu cours pieds nus ? Pourquoi tu manges des graines germées ?      
+**Pourquoi tu cours pieds nus ? Pourquoi tu manges des graines germées ?        
 **Y'a un faisceau d'idées pas forcément concordantes qui m'attirent \(et que j'ai pas forcément en tête !\). D'abord c'est un test, pas une règle dure. Je me suis lancé là dedans avec l'intuition que:
 
 * c'est pas une perte de temps  
