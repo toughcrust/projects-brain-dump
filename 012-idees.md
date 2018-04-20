@@ -14,6 +14,8 @@ L'une des plus belles sensations est de se sentir connecté avec quelqu'un. Une 
 
 Pour les voyages des autres: tell me about it with passion, make mme live the scenery, the people. their depth, their lightness, their joys and griefs. Show me you blend the world in a great, new inspiring way. Show the fucking world the crap it took to bring you there was fucking worth it.
 
+“Travel is fatal to prejudice, bigotry, and narrow-mindedness, and many of our people need it sorely on these accounts. Broad, wholesome, charitable views of men and things cannot be acquired by vegetating in one little corner of the earth all one's lifetime.” ― Mark Twain =&gt; Qu'est-ce que j'en pense ?
+
 **Méthodes de psycothérapie orientée logique / intentions / ressenti**
 
 Aider celui qui souffre à mettre à jour ses "sweet contradictory patterns of negative thinking": le but d'une thérapie n'est pas d'adoucir les peines qu'on a ressenti mais de découvrir pourquoi nos "logical flows" peuvent nous empêcher de laisser le travail mystérieux du temps faire son oeuvre: cicatriser. Ca rejoint je pense Frankl et son idée que si on extrait d'une douleur son sens, on peut vivre avec, voir même en faire un moteur \(histoire de cet homme transformé par l'idée qu'en survivant à sa femme c'est lui qui doit affronter la perte\).
