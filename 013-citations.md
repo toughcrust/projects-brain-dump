@@ -75,7 +75,9 @@ Fuck me. litterally.
 
 > Pleasure is the only thing worth having a theory about
 
+**Camus**
 
+> Mal nommer les choses, c’est ajouter au malheur du monde
 
 
 

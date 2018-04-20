@@ -1,8 +1,10 @@
-**Défi tinier house !  
-**Surtout besoin d'une pièce pour manger, se poser, travailler avec lumière. Pour dormir de quoi on a besoin ? Pour la salle d'eau de quoi on a besoin ? sachant que le sauna ça me fait kiffer.  
-Comment passer facilement d'un unique tiny house à une communauté et que ce soit "réversible" =&gt; mutulaisation puis on repart librement. 
+La toxicité n'est pas une chose intrinsèque. Elle apparaît dans la relation. D'où le fait qu'une personne bien attentionnée et même que l'on trouve adorable peut nous être toxique.  Seule manière de savoir: est-ce que je suis mieux après l'avoir vue ou pas ?
 
-**On chie dans notre eau pour la dépolluer chimiquement    
+**Défi tinier house !    
+**Surtout besoin d'une pièce pour manger, se poser, travailler avec lumière. Pour dormir de quoi on a besoin ? Pour la salle d'eau de quoi on a besoin ? sachant que le sauna ça me fait kiffer.  
+Comment passer facilement d'un unique tiny house à une communauté et que ce soit "réversible" =&gt; mutulaisation puis on repart librement.
+
+**On chie dans notre eau pour la dépolluer chimiquement      
 **Avant: toilettes -&gt; super engrais gratos pour les champs. Maintenant: on polle d'énormes quantités d'eau potable, on dissout un super fertilisant dedans qui du coup est toxique. On traite chimiquemnt derrrière.  
 Comment exactement on en arrive là ? Ca me fait penser aux "bullshit" jobs aussi. Faire des Excel de reporting. 1/ En soi c'est déconnecter des besoins de survie de l'individu 2/ Ca ne fait vraiment plasisir à personne.
 
@@ -14,7 +16,7 @@ Végétaliser la ville: mélanger le sauvage, le non contrôlé avec le désir d
 
 Coopération VS domination: en fait, j'ai tellement d'ambitions, je voudrais maîtriser tout, que la coopération est une réponse. C'est une adaptation à une domination tellement prenante qu'on préfèr déléguer en permanence. Redonne de l'ambition à la coop. C'est un truc de leader en fait. Et quand on "agit pour le bien commun" on oeuvre en fait à la réussite de ses propres projets. RIEN D'ALTRUISTE LA DEDANS \(l'altruisme existe-t-l ?\).
 
-**Pourquoi tu cours pieds nus ? Pourquoi tu manges des graines germées ?              
+**Pourquoi tu cours pieds nus ? Pourquoi tu manges des graines germées ?                
 **Y'a un faisceau d'idées pas forcément concordantes qui m'attirent \(et que j'ai pas forcément en tête !\). D'abord c'est un test, pas une règle dure. Je me suis lancé là dedans avec l'intuition que:
 
 * c'est pas une perte de temps  
