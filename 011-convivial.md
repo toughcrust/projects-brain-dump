@@ -1,4 +1,5 @@
-om de ma boîte de design / conseil: **convivialisons** ! =&gt; coopératives de consultants et d'artisans avec leur propres sensibilités
+om de ma boîte de design / conseil: **convivialisons** ! =&gt; coopératives de consultants et d'artisans avec leur propres sensibilités  
+La créer direct. Faire de la mission bénévole et ou perso. Un jour peut être avoir un contrat payé. Un jour peut être essayer d'en faire une source de revenu fiable. Mais avant: forme de travail epanouissante que je m'accorde et m'impose en même temps. Si pas d'objectifs de rémunération au début, trouver autre objectif. Par ex satisfaction d'un client. Même moi. Établir des objectifs
 
 [http://www.planeted.eu/qui-sommes-nous/ou-habitons-nous/](http://www.planeted.eu/qui-sommes-nous/ou-habitons-nous/) =&gt; **habitat participatif / tiny house **
 
