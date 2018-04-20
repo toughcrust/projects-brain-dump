@@ -1,4 +1,6 @@
-http://www.planeted.eu/qui-sommes-nous/ou-habitons-nous/ =&gt; **habitat participatif / tiny house **
+om de ma boîte de design / conseil: **convivialisons** ! =&gt; coopératives de consultants et d'artisans avec leur propres sensibilités
+
+[http://www.planeted.eu/qui-sommes-nous/ou-habitons-nous/](http://www.planeted.eu/qui-sommes-nous/ou-habitons-nous/) =&gt; **habitat participatif / tiny house **
 
 Faire / participer à des coops juste parce que j'aime le principe en soi. Ca sert à rien de chercher un business si ce qui m'intéresse c'est le modèle de société.
 
@@ -14,12 +16,12 @@ de quoi a-t-on peur initialement ? de quoi a-t-on besoin / envie ?
 Je voudrais pouvoir: ne pas travailler / travailler sur un projet perso sans viabilité éco \(dans l'immédiat\) ou quand que ce soit \(parce que bien commun\) en vivant sur mes réserves. En étant sûr à 95% que dés que je veux reprendre une vie normale \(i-e revenir sur Paris, retrouver un logement similaire, le même boulot, le même standard de vie quoi ...\)  
 =&gt; il faut une assurance sur le standard / confort de vie.
 
-Catra corbett: Fast Packing ! 
+Catra corbett: Fast Packing !
 
-Commencer tout seul une "cohorte ": course pieds nus tard la nuit, boxe, bains sauvages, sauna / banya, exercices de respiration, skin brushing
+Commencer tout seul une "cohorte ": course pieds nus tard la nuit, boxe, bains sauvages, sauna / banya, exercices de respiration, skin brushing  
 Boxe et méditation / yoga - champs polyphoniques
 
-feu et nuit à la belle étoile (Vexin ?)
+feu et nuit à la belle étoile \(Vexin ?\)
 
 **Idée:  
 Faire une maison 100% recyclage façon navette spatiale avec la maison du Paris durable**

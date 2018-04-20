@@ -29,12 +29,9 @@ Idée à tirer du financement collaboratif ??? =&gt; Les "récompenses en nature
 
 Plus simple que le revenu universel en responsabilisant: les salaires sont publiques. Les entreprises qui pratiquent des écarts de salaire importants sont taxées ?
 
-**Sport sauvage**
+Sport sauvage **=&gt; **asso **Sauvageons !**
 
 Courir en groupe pieds nus dans la ville la nuit  
-Défi: Est-ce que c'est possible de faire du ski nautique avec un vélo qui tracte ? 
-
-
-
-
+Baignade dans le bassin de la vilette  
+Défi: Est-ce que c'est possible de faire du ski nautique avec un vélo qui tracte ?
 
