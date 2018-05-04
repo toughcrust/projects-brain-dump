@@ -79,5 +79,9 @@ Fuck me. litterally.
 
 > Mal nommer les choses, c’est ajouter au malheur du monde
 
+**Alan Watts**
+
+> It is almost as if the world gets calm as you keep calm yourself, and vice versa.
+
 
 
