@@ -100,7 +100,6 @@ Sagittarius:   75.8 ( 3) /  12.4%
       Total:  614.0      / 100.0%
 ```
 
-## houses ratios:
 
 ```
 House  Occurences  Ratio
