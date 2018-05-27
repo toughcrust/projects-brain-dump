@@ -1,7 +1,7 @@
-##  Astro fuck yourself
+## Astro fuck yourself
 
-![](/assets/import.png)![image](https://user-images.githubusercontent.com/24764960/27288313-a5f3ba30-5506-11e7-9905-53ada94ca1ae.png)  
-  
+![](/assets/import.png)
+
 Planets:
 
 * Mercure: how you communicate
@@ -122,7 +122,7 @@ aspirations   personal           group
 service       self and others    oneness
 ```
 
-My catharsis (obsession) is about balancing my inner life, easing communication with myself.
+My catharsis \(obsession\) is about balancing my inner life, easing communication with myself.
 
 ...
 
@@ -154,10 +154,14 @@ A Mercury Retrograde native absorbs information on a more subjective level than 
 
 de [http://www.lynnkoiner.com/astrology-articles/retrogrades-in-the-natal-horoscope](http://www.lynnkoiner.com/astrology-articles/retrogrades-in-the-natal-horoscope) :
 
-When Mercury is retrograde, the thought processes are introspective, deliberate and internalized. Before any personal matter can be discussed, it must be processed internally.   
+When Mercury is retrograde, the thought processes are introspective, deliberate and internalized. Before any personal matter can be discussed, it must be processed internally.  
 This means that, if you want to discuss a personal matter with a Mercury Retrograde friend, you must tell them what you want to discuss and set up an appointment to discuss it. If you want an immediate answer, you will not get an honest or well though out answer. They need time to brood and ponder.
 
-Because these people need to digest and process first, they are slow to defend themselves and slow to respond to queries of a personal nature unless they are prepared ahead of time.  
-- They appreciate a slow reaction in another.
-- They can easily discuss non-personal subjects, their own interests and expertise, without introspection. This has already been done in the past.   
-On personal subjects, they may not know immediately how they feel about something, they need that brood and ponder time.
+Because these people need to digest and process first, they are slow to defend themselves and slow to respond to queries of a personal nature unless they are prepared ahead of time.
+
+* They appreciate a slow reaction in another.
+* They can easily discuss non-personal subjects, their own interests and expertise, without introspection. This has already been done in the past.   
+  On personal subjects, they may not know immediately how they feel about something, they need that brood and ponder time.
+
+
+
