@@ -1,20 +1,29 @@
 ## Astro fuck yourself
 
-![](/assets/import.png)
+**Planets**
 
-Planets:
+Subconscious (instinct) => mes leviers inconscients
+* Mercure: How you think and communicate
+* Venus: Romantic / aesthetic inclinations
+* Mars: Achievement / action / fight
+* Jupiter: Broader purpose, reach, and possibility
 
-* Mercure: how you communicate
-* Venus: romantic inclinations
-* Mars: how you take actions
-* Jupiter: what you value
-* Saturn: your work ethic
-* Uranus: your freedon needs
-* Neptune: your idealism
-* Pluto: your inner drive
-* Chiro: 
+Conscious (ego) => Comment je vis au jour le jour, de quoi j'ai besoin
+* Saturn: immunity / security
+* Moon: sensitivity / sympathy
+* Sun: vitality / radiating
 
-Archetypes:
+Collective => Comment je me relie à l'humanité 
+* Uranus: creative intelligence for a perfect world
+* Neptune: ideal of unconditional love (Mystic)
+* Pluto: ideal of perfect human (metamorphosis)
+
+Autres:
+* Chiro: the wounded healer
+* North node: to learn
+* South node: "been there / done that" / confort zone
+
+**Signs and their archetypes**
 
 * Aries \(Mars\) The Initiator, Pioneer, Warrior
 * Taurus \(Venus\) The Earth Spirit, Manifester, Builder
@@ -29,7 +38,21 @@ Archetypes:
 * Aquarius \(Uranus, Saturn\) The Humanitarian, Reformer, Global One
 * Pisces \(Neptune, Jupiter\) The Compassionate One, Mystic, Dreamer
 
+**houses**
+```
+              1st -> 6th         7th -> 12th
+freedom       independence       inter-dependence
+property      get                take and share
+thinking      isolate / observe  synthetize
+pride         inner              outer
+aspirations   personal           group
+(& creation)
+service       self and others    oneness
+```
+
 ## Planets in signs and houses
+
+![](/assets/import.png)
 
 a - Sun in Taurus and 11th House  
 b - Moon in Aquarius and 7th House  
@@ -106,27 +129,32 @@ Typically, the North Node lessons here have to do with integrating one’s darke
 
 The purpose of the lifetime then might be described as bringing emotions to the surface so that they can be understood rationally. If this native doesn’t become comfortable with expressing his 8th house reality, it’s going to block his overall life purpose. So everything depends on the rest of the chart; does it support water or air? Is the individual going to ‘bury’ his or her 8th house nature, or is s/he going to take the hard road toward self-awareness?
 
+
+My catharsis \(obsession\) is about balancing my inner life, easing communication with myself.
+
+des extraits tirés de [http://sharpeastrology.com/2015/07/25/natal-chart-lessons-personal-planets-in-retrograde/](http://sharpeastrology.com/2015/07/25/natal-chart-lessons-personal-planets-in-retrograde/)
+
+A Mercury Retrograde native absorbs information on a more subjective level than a Mercury-direct native would. Facts will be taken from something this person hears, sees or reads, but **what is focused on most is the essence or the feeling this person gets from this information**. One with Mercury in retrograde will have inner conversations with themselves about something, which leads to an intensified perspective, and then have a difficult time outwardly expressing it. This often leads to one feeling greatly misunderstood. **Another focus for those with Mercury Retrograde is other peoples’ motives** – even if their intuitions may not be in tune with reality, **they will focus on whether or not others mean what they say**.
+
+**Although many decisions are thought out in depth, other decisions are made rashly because you are frustrated with your thoughts going in circles.**
+
+des extraits tirés de [http://www.lynnkoiner.com/astrology-articles/retrogrades-in-the-natal-horoscope](http://www.lynnkoiner.com/astrology-articles/retrogrades-in-the-natal-horoscope) :
+
+When Mercury is retrograde, the thought processes are introspective, deliberate and internalized. Before any personal matter can be discussed, it must be processed internally.  
+This means that, if you want to discuss a personal matter with a Mercury Retrograde friend, you must tell them what you want to discuss and set up an appointment to discuss it. If you want an immediate answer, you will not get an honest or well though out answer. They need time to brood and ponder.
+
+Because these people need to digest and process first, they are slow to defend themselves and slow to respond to queries of a personal nature unless they are prepared ahead of time.
+
+* They appreciate a slow reaction in another.
+* They can easily discuss non-personal subjects, their own interests and expertise, without introspection. This has already been done in the past.   
+  On personal subjects, they may not know immediately how they feel about something, they need that brood and ponder time.
+
+
+
 **Autre**
 
 Une fois j'ai rêvé que j'étais une araignée en essayant une "régression" [https://alltotems.com/spirit-animals/spider-symbolism-meaning/](https://alltotems.com/spirit-animals/spider-symbolism-meaning/)
 
-my houses interpretation
-
-```
-              1st -> 6th         7th -> 12th
-freedom       independence       inter-dependence
-property      get                take and share
-thinking      isolate / observe  synthetize
-pride         inner              outer
-aspirations   personal           group
-service       self and others    oneness
-```
-
-My catharsis \(obsession\) is about balancing my inner life, easing communication with myself.
-
-...
-
----
 
 In her book, Varda Hasselmann describes the seven soul age levels of the old soul as follows:
 
@@ -144,24 +172,7 @@ Level 6 - Impress by being, not by doing
 
 Level 7 - Receive without giving, give without receiving
 
----
 
-de extraits tirés de [http://sharpeastrology.com/2015/07/25/natal-chart-lessons-personal-planets-in-retrograde/](http://sharpeastrology.com/2015/07/25/natal-chart-lessons-personal-planets-in-retrograde/)
-
-A Mercury Retrograde native absorbs information on a more subjective level than a Mercury-direct native would. Facts will be taken from something this person hears, sees or reads, but **what is focused on most is the essence or the feeling this person gets from this information**. One with Mercury in retrograde will have inner conversations with themselves about something, which leads to an intensified perspective, and then have a difficult time outwardly expressing it. This often leads to one feeling greatly misunderstood. **Another focus for those with Mercury Retrograde is other peoples’ motives** – even if their intuitions may not be in tune with reality, **they will focus on whether or not others mean what they say**.
-
-**Although many decisions are thought out in depth, other decisions are made rashly because you are frustrated with your thoughts going in circles.**
-
-de [http://www.lynnkoiner.com/astrology-articles/retrogrades-in-the-natal-horoscope](http://www.lynnkoiner.com/astrology-articles/retrogrades-in-the-natal-horoscope) :
-
-When Mercury is retrograde, the thought processes are introspective, deliberate and internalized. Before any personal matter can be discussed, it must be processed internally.  
-This means that, if you want to discuss a personal matter with a Mercury Retrograde friend, you must tell them what you want to discuss and set up an appointment to discuss it. If you want an immediate answer, you will not get an honest or well though out answer. They need time to brood and ponder.
-
-Because these people need to digest and process first, they are slow to defend themselves and slow to respond to queries of a personal nature unless they are prepared ahead of time.
-
-* They appreciate a slow reaction in another.
-* They can easily discuss non-personal subjects, their own interests and expertise, without introspection. This has already been done in the past.   
-  On personal subjects, they may not know immediately how they feel about something, they need that brood and ponder time.
 
 
 
