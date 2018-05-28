@@ -158,6 +158,8 @@ Moon in Aquarius is humane, sincere, logical, independent, unconventional, progr
 Moon in seventh house: In order to have successful partnerships, you need to control your need and urge to depend upon others. Moodiness is something that both you and your partner, whether in marriage or business, need to control. Also, you need to curb your desire for constant changes in the relationship and seek stability. As for your career, you have a strong need for partnerships. You prefer to work in a team than alone and rely upon others to fulfill your work responsibilities. 
 These chart holders need relationships with other people in order to feel comfortable with their own lives. Interactions with partners comfort them. They are looking to get their own needs satisfied and there may always be someone who can do this better than their current partner. Add this to the fact that their expert skill at attracting and negotiating with people is unconscious, so that they don't even have to try to excel at it, and you have a person who can easily float from one relationship to the next.
 
+A lire sur ascendant Cancer: http://www.starslikeyou.com.au/your-astrology-profile/your-ascendant-is-cancer/
+
 **Autre**
 
 Une fois j'ai rêvé que j'étais une araignée en essayant une "régression" [https://alltotems.com/spirit-animals/spider-symbolism-meaning/](https://alltotems.com/spirit-animals/spider-symbolism-meaning/)
