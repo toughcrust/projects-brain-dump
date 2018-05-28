@@ -166,6 +166,11 @@ Your challenge is to somehow integrate this into your life in a balanced way. At
 Ascendant cancer:
 http://www.starslikeyou.com.au/your-astrology-profile/your-ascendant-is-cancer/
 
+Ascendant Water Signs
+The water signs of Cancer, Scorpio and Pisces are noted for their emotion, intuition and feeling. When a water sign is on the ascendant the subject will hide their true feelings and have a strong need to protect themselves from the world around them. What you see is often not what you get with water ascendants. In other words, the signals they send out are consciously or unconsciously chosen for effect.
+
+Cancerians appear chatty and helpful and they do well in any situation that requires tact.
+
 **Autre**
 
 Une fois j'ai rêvé que j'étais une araignée en essayant une "régression" [https://alltotems.com/spirit-animals/spider-symbolism-meaning/](https://alltotems.com/spirit-animals/spider-symbolism-meaning/)
