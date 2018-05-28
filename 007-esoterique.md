@@ -148,7 +148,9 @@ Because these people need to digest and process first, they are slow to defend t
 * They can easily discuss non-personal subjects, their own interests and expertise, without introspection. This has already been done in the past.   
   On personal subjects, they may not know immediately how they feel about something, they need that brood and ponder time.
 
+Moon in Aquarius is humane, sincere, logical, independent, unconventional, progressive, ingenious, and friendly. Feelings tend to be cool and detached but are honest and steady even if odd. One is usually interested in psychology, social reform, and has a wide variety of friends and associates. Personality tends to be mental with a quirky sense of humor. Imagination inclines toward science fiction and utopian plans for the future. One is often altruistic and humanitarian, although others may not suspect it, because the feelings may not be particularly warm.
 
+Moon in seventh house: In order to have successful partnerships, you need to control your need and urge to depend upon others. Moodiness is something that both you and your partner, whether in marriage or business, need to control. Also, you need to curb your desire for constant changes in the relationship and seek stability. As for your career, you have a strong need for partnerships. You prefer to work in a team than alone and rely upon others to fulfill your work responsibilities. 
 
 **Autre**
 
