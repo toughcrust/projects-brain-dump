@@ -158,7 +158,13 @@ Moon in Aquarius is humane, sincere, logical, independent, unconventional, progr
 Moon in seventh house: In order to have successful partnerships, you need to control your need and urge to depend upon others. Moodiness is something that both you and your partner, whether in marriage or business, need to control. Also, you need to curb your desire for constant changes in the relationship and seek stability. As for your career, you have a strong need for partnerships. You prefer to work in a team than alone and rely upon others to fulfill your work responsibilities. 
 These chart holders need relationships with other people in order to feel comfortable with their own lives. Interactions with partners comfort them. They are looking to get their own needs satisfied and there may always be someone who can do this better than their current partner. Add this to the fact that their expert skill at attracting and negotiating with people is unconscious, so that they don't even have to try to excel at it, and you have a person who can easily float from one relationship to the next.
 
-A lire sur ascendant Cancer: http://www.starslikeyou.com.au/your-astrology-profile/your-ascendant-is-cancer/
+Cancer Rising and Moon in Aquarius:
+Your Aquarius Moon suggests your devotional energies and protective care are not only for your own immediate family, but also for a wider community.
+Your gift is to envision creative alternatives and to be an instrument of change regarding how we nurture one another. You could be politically or socially active in changing the school system, health care or other arenas where nurture and care is administered. The rising of the feminine in our times is an important theme in your life.
+Your challenge is to somehow integrate this into your life in a balanced way. At times you may be confused as to where your true allegiance lies: with your family circle or with the broader world. People outside your family may see you as full of empathy and sensitive to their concerns, while your own family may feel from you a peculiar iciness and detachment at times, as if you wanted nothing to do with them or their needs. It is probably true that you do not want to care for them solely and that is where creative solutions and alternatives come in! Have some compassion for yourself. It is quite a challenge to answer your deep need to be free, to live life on your own terms, and to make a significant contribution to the human race or the planet, while at the same time nurturing family and lasting intimacy in your life.
+
+Ascendant cancer:
+http://www.starslikeyou.com.au/your-astrology-profile/your-ascendant-is-cancer/
 
 **Autre**
 
