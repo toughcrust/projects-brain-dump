@@ -6,16 +6,12 @@
 * [Hey c'était cool](003-was-cool.md)
 * [Le club des 27 \(réflexions\)](004-club-27.md)
 * [UX / design / boulot](005-design.md)
-* [Vacances coolos](006-vacances.md)
+* [Aventures coolos](006-vacances.md)
 * [Trucs ésotériques](007-esoterique.md)
 * [Agenda politique](008-politique.md)
 * [Son / techno / méditation](009-meditation.md)
 * [Ukulele](010-ukulele.md)
 * [Convivial !](011-convivial.md)
 * [Idées à donner](012-idees.md)
-- [Vrac de citations et réflexions](013-citations.md)
-
-
-
-
+* [Vrac de citations et réflexions](013-citations.md)
 
