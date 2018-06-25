@@ -1,3 +1,5 @@
+Pas encore lu: https://www.astro.com/astrologie/in_lifeview_f.htm
+
 ## Astro fuck yourself
 
 **Planets**
