@@ -14,4 +14,5 @@
 * [Convivial !](011-convivial.md)
 * [Idées à donner](012-idees.md)
 * [Vrac de citations et réflexions](013-citations.md)
+* [Finances](finances.md)
 
