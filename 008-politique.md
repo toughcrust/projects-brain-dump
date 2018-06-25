@@ -19,3 +19,8 @@ Some say money does not buy happiness, What I'm sure of it should not steal othe
 LE pb du capitalisme, de l'absence de solidarité, des guerres, etc..L'attrait et la peur de la domination. Pour dépasser ça Il faut l'équivalent de:
 Tu te laisses tomber en arrière et tes collègues te rattrapent.
 => Créer des expériences, des rites de passage où on connaît l'opulence et la misère, la solidarité et la compétition féroce ?
+
+Connaitre le salaire des gens ça facilite plein de trucs !
+Ex: je déteste les prix libres ... Comment savoir de quoi l'autre a besoin ???
+Plus facile de donner + si t'as une idée de ses besoins.
+PB de connaître les salaires: on s'attache à des ptites différences, elle agacent => avoir un revenu un peu random / exposer une fourchette ?
