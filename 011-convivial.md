@@ -1,11 +1,10 @@
-om de ma boîte de design / conseil: **convivialisons** ! =&gt; coopératives de consultants et d'artisans avec leur propres sensibilités  
+nom de ma boîte de design / conseil: **convivialisons** ! =&gt; coopératives de consultants et d'artisans avec leur propres sensibilités  
 La créer direct. Faire de la mission bénévole et ou perso. Un jour peut être avoir un contrat payé. Un jour peut être essayer d'en faire une source de revenu fiable. Mais avant: forme de travail epanouissante que je m'accorde et m'impose en même temps. Si pas d'objectifs de rémunération au début, trouver autre objectif. Par ex satisfaction d'un client. Même moi. Établir des objectifs
 
-[http://www.planeted.eu/qui-sommes-nous/ou-habitons-nous/](http://www.planeted.eu/qui-sommes-nous/ou-habitons-nous/) =&gt; **habitat participatif / tiny house **
-
-Faire / participer à des coops juste parce que j'aime le principe en soi. Ca sert à rien de chercher un business si ce qui m'intéresse c'est le modèle de société.
-
-logement coopératif ?
+**Logement coopératif**
+http://www.habicoop.fr/
+https://twitter.com/Coopmune
+http://www.planeted.eu/qui-sommes-nous/ou-habitons-nous/
 
 **thrill & chill** je reviens sur mon idée de salle partagée:  
 bains banya / sauna, sorties courses pieds nus et baignade dans la Seine  

@@ -1,9 +1,10 @@
-Balkans / Afrique / Asie / Mongolie ?
-Avion ou pas ?
-1 mois / 6 mois ?
-trail / marche dans les pyrénées
-**COUCH SURFING ?**
-**tour d'éco-villages** ?
+**Quoi**
+Mongolie en transsibérien
+Crapahutage dans les balkans
+Trail dans les Pyrénées
+Espagne
 
 
+**Hébergement**
+couch surfing
 

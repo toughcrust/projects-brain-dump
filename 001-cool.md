@@ -12,6 +12,7 @@ Giovanni's Room - James Baldwin
 **MOUI**  
 Please like me  
 La science des rêves
+http://www.say-yess.com/2018/17797/petit-manuel-de-resistance-contemporaine/
 
 **Articles**  
 [https://usbeketrica.com/auteur/nicolasminvielle-olivierwathelet](https://usbeketrica.com/auteur/nicolasminvielle-olivierwathelet) =&gt; Le design fiction, 12 articles qui ont l'air assez chouette  
