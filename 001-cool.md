@@ -8,11 +8,13 @@ OXV: The Manual
 Bullhead  
 Vier Minuten  
 Giovanni's Room - James Baldwin
+https://www.amazon.fr/Porte-Myst%C3%A9rieuse-Mont-Saint-Michel-Sentier-Daath/dp/1542361958/ref=cm_cr_arp_d_product_top?ie=UTF8
 
 **MOUI**  
 Please like me  
 La science des rêves
 http://www.say-yess.com/2018/17797/petit-manuel-de-resistance-contemporaine/
+https://www.amazon.fr/Lentraide-lautre-jungle-Pablo-Servigne/dp/B01GC2XT1G/ref=sr_1_1?ie=UTF8&qid=1529914466&sr=8-1&keywords=l%27entraide+l%27autre+loi+de+la+jungle
 
 **Articles**  
 [https://usbeketrica.com/auteur/nicolasminvielle-olivierwathelet](https://usbeketrica.com/auteur/nicolasminvielle-olivierwathelet) =&gt; Le design fiction, 12 articles qui ont l'air assez chouette  

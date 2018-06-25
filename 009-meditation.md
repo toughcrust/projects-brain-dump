@@ -1,5 +1,9 @@
 Exercice de respi à essayer: kapalabhati
 
+How To Open Your 7 Chakras As Explained In a Children's 
+ShowAvatar: The Last Airbender S02E19 - The Guru
+https://www.youtube.com/watch?v=StrbppmsZJw
+
 Rebel / fighter Yoga / meditation: use all your energy and frustation to create a bubble of protection around you and all that you care about. Imagine yourself in a dance club. you're driven by loud music but you protect yourself. This is a mix of dealing with anger and calming down at the same time ! And I realize I cannot really do without this kind of dual approach. It also gives a protection against the frailty you feel when meditating: you let something enter you. Most of the time it feels good but why you it always ? So just strength the core of yourself: make your awareness a fucking fighter. **Not your body, not your mental, it's your awareness that is a fucking fighter. **EDIT: en fait, les meilleures méditations que j'ai faites c'est quand même dans le lâcher prise... Est-ce qu'il faut:  
 1 - Créer une aura rageuse de protection, affronter tout  
 2 - Du coup se permettre de lâcher prise, de se laisser pénétrer par les forces du dehors parce qu'on se sent invincible   
@@ -11,6 +15,7 @@ Ne pas faire de synthèse. Dire ce qui m'intéresse c'est: clarifier la pensée 
 
 Quelles sont mes intentions ? \(Notamment une intention latente: la rparation est intérieure, donc les moyens devraient être minimaux\)
 
+Analyse des chakras
 http://journals.sfu.ca/seemj/index.php/seemj/article/viewFile/387/349
 
 \*\*Symbolique
