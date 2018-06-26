@@ -1,5 +1,7 @@
 Exercice de respi à essayer: kapalabhati
 
+https://www.youtube.com/watch?v=c5dQiWQGpg8 "Crystal chakra 1 hour meditation"
+
 How To Open Your 7 Chakras As Explained In a Children's 
 ShowAvatar: The Last Airbender S02E19 - The Guru
 https://www.youtube.com/watch?v=StrbppmsZJw
