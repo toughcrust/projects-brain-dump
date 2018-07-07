@@ -1,4 +1,12 @@
+**Whislist Amazon**
+https://www.amazon.com/Gnostic-New-Age-Countercultural-Revolutionized/dp/0231170769/ref=cm_cr_arp_d_product_top?ie=UTF8
+https://www.amazon.fr/Porte-Myst%C3%A9rieuse-Mont-Saint-Michel-Sentier-Daath/dp/1542361958/ref=cm_cr_arp_d_product_top?ie=UTF8
+https://www.amazon.com/Biocentrism-Consciousness-Understanding-Nature-Universe/dp/1935251740/ref=mt_paperback?_encoding=UTF8&me=&dpID=41CRcibVf8L&preST=_SY291_BO1,204,203,200_QL40_&dpSrc=detail
+https://www.amazon.com/Guns-Germs-Steel-Fates-Societies-ebook/dp/B06X1CT33R/#customerReviews
+
 **A checker!**  
+
+
 **OUI !**  
 [https://medium.com/@ralphammer/a-quick-beginners-guide-to-drawing-58213877715e](https://medium.com/@ralphammer/a-quick-beginners-guide-to-drawing-58213877715e)  
 [http://www.complex.com/pop-culture/2013/08/best-british-comedy-movies/](http://www.complex.com/pop-culture/2013/08/best-british-comedy-movies/)  
@@ -7,8 +15,6 @@ Donnie darko
 OXV: The Manual  
 Bullhead  
 Vier Minuten  
-Giovanni's Room - James Baldwin
-https://www.amazon.fr/Porte-Myst%C3%A9rieuse-Mont-Saint-Michel-Sentier-Daath/dp/1542361958/ref=cm_cr_arp_d_product_top?ie=UTF8
 
 **MOUI**  
 Please like me  
@@ -46,6 +52,7 @@ Understanding Comics: The Invisible Art \([https://www.amazon.com/Understanding-
 **Romans**  
 Faust de Goethe  
 American gods
+Giovanni's Room - James Baldwin
 
 **Auteurs que je devrais aimer**  
 Walt whitman  
