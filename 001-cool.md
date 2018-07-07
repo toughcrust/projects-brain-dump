@@ -4,6 +4,7 @@ https://www.amazon.fr/Porte-Myst%C3%A9rieuse-Mont-Saint-Michel-Sentier-Daath/dp/
 https://www.amazon.com/Biocentrism-Consciousness-Understanding-Nature-Universe/dp/1935251740/ref=mt_paperback?_encoding=UTF8&me=&dpID=41CRcibVf8L&preST=_SY291_BO1,204,203,200_QL40_&dpSrc=detail
 https://www.amazon.com/Guns-Germs-Steel-Fates-Societies-ebook/dp/B06X1CT33R/#customerReviews
 https://www.amazon.com/Beginning-Infinity-Explanations-Transform-World/dp/0143121359/ref=as_li_ss_tl?ie=UTF8&linkCode=sl1&tag=lrc1981-20&linkId=de49096eb0ba0ffb3f5536f22e46f405
+http://www.terre-de-mysteres.fr/livres/entites-et-parasites-energetiques.html
 
 **OUI !**  
 [https://medium.com/@ralphammer/a-quick-beginners-guide-to-drawing-58213877715e](https://medium.com/@ralphammer/a-quick-beginners-guide-to-drawing-58213877715e)  
