@@ -1,3 +1,5 @@
+“Happiness is the feeling that power increases — that resistance is being overcome.” — Nietzsche (Dans l'article qui le cite "The secret ingredient to happiness is to risk losing it.")
+
 **Dans l'esprit Deleuze / Damasio**
 
 * Faire plier la force du dehors qui nous fait plier
