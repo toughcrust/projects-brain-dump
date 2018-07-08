@@ -5,6 +5,8 @@ https://www.amazon.com/Biocentrism-Consciousness-Understanding-Nature-Universe/d
 https://www.amazon.com/Guns-Germs-Steel-Fates-Societies-ebook/dp/B06X1CT33R/#customerReviews
 https://www.amazon.com/Beginning-Infinity-Explanations-Transform-World/dp/0143121359/ref=as_li_ss_tl?ie=UTF8&linkCode=sl1&tag=lrc1981-20&linkId=de49096eb0ba0ffb3f5536f22e46f405
 http://www.terre-de-mysteres.fr/livres/entites-et-parasites-energetiques.html
+https://www.amazon.com/dp/B06X94WVHW/ref=sspa_dk_detail_2?psc=1
+https://www.amazon.com/Complete-Idiots-Guide-Psychic-Intuition/product-reviews/1615641955/ref=cm_cr_dp_d_show_all_btm?ie=UTF8&reviewerType=all_reviews
 
 **OUI !**  
 [https://medium.com/@ralphammer/a-quick-beginners-guide-to-drawing-58213877715e](https://medium.com/@ralphammer/a-quick-beginners-guide-to-drawing-58213877715e)  
