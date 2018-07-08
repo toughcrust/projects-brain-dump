@@ -16,3 +16,4 @@ https://www.keyhole.fr/vertika/fr/#details: un lombricomposteur de balcon avec p
 Biz sur le lombricompstage de déjections humaines:
 des toilettes dans la rue => création de compost => végétalisation de la ville avec des fleurs. Ou **vente de fleurs** ? Gros atout: objet de luxe.
 Typique d'un appel à projet "budget participatif" de la ville de Paris.
+http://humanurehandbook.com/
