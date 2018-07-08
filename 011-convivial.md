@@ -5,6 +5,7 @@ La créer direct. Faire de la mission bénévole et ou perso. Un jour peut être
 http://www.habicoop.fr/
 https://twitter.com/Coopmune
 http://www.planeted.eu/qui-sommes-nous/ou-habitons-nous/
+http://www.habitatparticipatif.eu/
 
 **thrill & chill** je reviens sur mon idée de salle partagée:  
 bains banya / sauna, sorties courses pieds nus et baignade dans la Seine  
