@@ -18,4 +18,5 @@
 * [Discerner](sur-le-discernement.md)
 * [Agroforesterie / Syntropie / Caca](agroforesterie-syntropie.md)
 * [Minimalisme pratique](eau.md)
+* [Recherche boulot](recherche-boulot.md)
 
