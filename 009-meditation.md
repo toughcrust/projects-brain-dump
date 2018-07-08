@@ -1,5 +1,7 @@
 Exercice de respi à essayer: kapalabhati
 
+https://usbeketrica.com/article/pedro-winter-la-confrontation-humain-ordinateur-me-fascine
+
 Les gongs c'est cool! 
 
 https://www.awakeninthedream.com/articles/the-sacred-art-of-alchemy
