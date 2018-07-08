@@ -15,6 +15,6 @@
 * [Idées à donner](012-idees.md)
 * [Vrac de citations et réflexions](013-citations.md)
 * [Finances](finances.md)
-* [Sur le discernement](sur-le-discernement.md)
+* [Discerner](sur-le-discernement.md)
 * [Agroforesterie / Syntropie / Caca](agroforesterie-syntropie.md)
 
