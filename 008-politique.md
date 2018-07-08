@@ -1,4 +1,14 @@
-Identification des processus de transformation. De leurs responsables et de leurs externalités + et négatives.
+**La politique du déchet en France** 
+=> GO zéro waste ?
+En lien avec une visée législative: action non violente pour mobiliser:
+Mettre en place dans un endroit visible à paris la pollution générée par un parisien
+Actualisé sur la semaine:
+trajets en avion
+déchets produits
+Mettre les objectifs en terme de réduction de pollution, de contrôle de la température
+Pour montrer les impacts, brûler le % de déchets à brûler chaque dimanche
+
+
 
 Utilisation de blockchain pour tracer les échanges financiers: se rendre compte d'à quoi sert notre argent: j'ai payé 1000€ à une entreprise qui utilise massivement de la main d'oeuvre exploitée 
 

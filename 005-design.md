@@ -8,6 +8,10 @@
 
 Input au design: formuler une contradiction intéressante
 
+Autour du soft: archi logicielle vue comme "Help humans do cool stuff with computers if ever needed"
+
+autre mots clés boîte de conseil: unburden / unbullshit
+
 **Le chaman du business plan**  
 Désenvoutement, retrouver le collaborateur aimé  
 marie mes deux passions: compétition économique, WTF et LOL
