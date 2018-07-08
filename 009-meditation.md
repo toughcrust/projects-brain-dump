@@ -1,5 +1,9 @@
 Exercice de respi à essayer: kapalabhati
 
+Les gongs c'est cool! 
+
+https://www.awakeninthedream.com/articles/the-sacred-art-of-alchemy
+
 https://www.youtube.com/watch?v=c5dQiWQGpg8 "Crystal chakra 1 hour meditation"
 
 How To Open Your 7 Chakras As Explained In a Children's 
@@ -19,6 +23,10 @@ Quelles sont mes intentions ? \(Notamment une intention latente: la rparation es
 
 Analyse des chakras
 http://journals.sfu.ca/seemj/index.php/seemj/article/viewFile/387/349
+
+
+https://www.scribd.com/doc/202351974/Spiritual-Results-Music-Study: 
+Analyse de l'impact d'un CD "Spriritual results" music (432Hz, chakras, etc.) sur le "human biofield" => visualisation des émissions d'un corps humain.
 
 \*\*Symbolique
 
