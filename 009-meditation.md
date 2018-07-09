@@ -1,3 +1,6 @@
+https://www.youtube.com/watch?v=YV5KAbV34NU
+cool un truc comme ça pour chater et musique + percu en marchant !
+
 Exercice de respi à essayer: kapalabhati
 
 https://usbeketrica.com/article/pedro-winter-la-confrontation-humain-ordinateur-me-fascine
