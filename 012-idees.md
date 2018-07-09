@@ -1,3 +1,13 @@
+**Copro culture**
+proposer des solutions à un groupe d'habitations pour une gestion raisonnée du  caca
+=> des champis dans les caves ?
+
+https://lacaverne.co/ !
+Idée: mettre en lien ce genre d'initiative avec le compostage urbain :)
++ mon idée de caca bien sûr !
+plein de caca dans les caves des immeubles pour donner des bons champis !
+
+
 **Collectif anti-voyages, \#holidaysFeeling**
 
 Pour le voyage, contre les voyages. Faire l'essentiel de ce que nous apporte le voyage sans aller se morfondre à Bali et vivre sa joie à travers la jalousie suscitée par des posts Instagram mis en scène ! Après je suis convaincu que le voyage est une chance et irremplaçable !
