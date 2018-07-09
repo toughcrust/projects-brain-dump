@@ -1,4 +1,4 @@
-écrire:
+https://uxplanet.org/10-small-design-mistakes-we-still-make-1cd5f60bc708
 
 [https://www.invisionapp.com/blog/writing-tips-for-non-writers/](https://www.invisionapp.com/blog/writing-tips-for-non-writers/)
 
