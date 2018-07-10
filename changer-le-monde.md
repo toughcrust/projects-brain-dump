@@ -11,3 +11,13 @@ En même temps, il faut garantir des droits élémentaires: des fruits et légum
 demande d'un logement de base =&gt; l'état doit répondre à la demande en 6 mois max.  
 demande d'una allocation nourriture =&gt; soit soupe / pain / etc , soit de quoi cuisiner \(légumes de saison bio\)
 
+**Education**
+Contre le décrochage scolaire:
+
+* laisser l'école telle qu'elle est dans le majeure partie
+* pour ceux qui décrochent: leur proposer une alternative \(fais ce dont tu as envie, on essaie de t'accompagner\)
+* l'école est une chance: ceux qui ne la prennent pas sont invités à rester chez eux
+  bénéfices attendus:
+* les profs ne sont pas tenus de faire respecter la discipline, encouragés à se reconnecter avec le plaisir de transmettre
+* un élève est responsabilisé face à sa propre éducation, et ressent une forme de respect de la part des enseignant
+

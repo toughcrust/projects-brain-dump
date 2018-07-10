@@ -13,20 +13,10 @@ Jai un nombre limité de fuck que je peux donner. Ça dépend de mon état de fo
 Joie = Flow = Profiter à fond de sa vie ?  
 avec /! Profiter = pour moi digérer un max de ce qu'on vie. Profusion de choses à digérer et se donner le temps de "manger" le plus appétissant et d'en tirer le meilleur. **Discerner**, toujours plus! Tout en cherchant activement les sujets les plus intéressants à discerner !
 
-While we spend the next decade arguing over how to fund UBI, how to implement it, and how big it should be, we can also start preparing people for the massive mindset shift that is essential to the success of UBI. We can start by envisioning the future we’d want to create if we didn’t have to rely on jobs to meet our most basic needs. We can begin by helping the next generation define what success means to them individually, and offering them the tools to build their own path to achieve it. And we can do so by being an example, taking the lead in doing it ourselves.[https://medium.com/@kacyqua/why-universal-basic-income-wont-work-f40f8a1f1148](https://medium.com/@kacyqua/why-universal-basic-income-wont-work-f40f8a1f1148)
 
 Le mal être / la maladie créent une rétention de tout sans nuance: on réprime la joie, l'amour inconditionnel. L'esprit critique continue de tourner et on s'auto accuse de se réprimer ...
 
 Kinda cool, kinda scary. But mostly cool: if you take the time to investigate, you WILL know better than about everyone
-
-Be good at is what at what you are willing to be challenged about.  
-On most things people are content with having knowledge they hold "true": it serves them. Prove dem wrong and then get annoyed.
-
-Il y a toujours une autre façon de faire, ne serait-ce que celle qui consiste à abdiquer en faisant un gros 🖕
-
-rage & joie & tristesse FTW \(transmuter en émotions basique c'est sain\)
-
-"Thank you so much for what you give me. I owe you gratefulness and radical honesty."
 
 Better question than "What's the meaning of life ?": whatever simple sentence proposed, I cannot imagine my mind not questionning it \(and having pleasure in rebelling\) thus expressing a desire of liberation from a given meaning =&gt; "What is the meaning of the meaning of life ?". I can't imagine any definitive answer on such a topic not to be mind blowing. And when you have a look at the best movies out there, I find that what they do the best is firing infinite possibilities \(more questions than answers\) in your mind. Somehow I can't help but see in popular movies and video games \(or children playing\), a small scale re-play of what is the core creativity of the universe. Like clues or puns.
 
@@ -49,33 +39,12 @@ Toujours libérateur à relire:
 
 **Aimer à partir de notre plénitude et non de nos manques =&gt; mieux vaux être seul que mal accompagner.**
 
-Idée marrante à triturer: des fois j'ai l'impression que la meilleure manipulation \(arriver à ses fins avec les autres ou soi\) c'est d'être complètement ouvert sur ses objectifs et dans une dialectique totale. "Pay forward" aussi. =&gt; "Sweet patterns of negative thinking"
+Idée marrante à triturer: des fois j'ai l'impression que la meilleure manipulation \(arriver à ses fins avec les autres ou soi\) c'est d'être complètement ouvert sur ses objectifs et dans une dialectique totale. "Pay forward" aussi.
 
-L'art: pour moi l'"art", c'est le regard qui se porte sur "quelque chose" et interprète une intention =&gt; Dialectique intention / interprétation. Ex: je regarde le paiper peint des chiottes et c'est une jungle qui s'offre à moi. Donc à la fois une intention intiale et une interprétation \(correcte ou non\). interprétation: peut être un jeu de recherche de l'intention ou alors l'artiste tient au contraire à être clair sur ses intentions. "Art moderne" de l'art ? Une poubelle déversée de l'art ? Pour moi oui. Fainéant quand ça a déjà été fait. Banksy c'est coolos dans l'interrogation que ça pose.
 
-Choses a priori + à lier à un boulot:
 
-* Besoin de légèreté / aventure / évasion  
-* Un domaine ou on a envie d'être critiqué pour progresser  
-* Un sentiment d'être utile aux autres  
-* Un sentiment de sécurité lié aux compétences développées et au fait qu'on développe son avantage concurrentiel \("je suis capable de chasser et de me nourrir en milieu hostile comme personne"\)
-* Routine plaisante, environnement confortable \(aussi bien physique que social\)
 
-Choses a priori - à lier à un boulot:
 
-* Une envie de progresser sur un aspect de soi qui nous fait défaut \(mais pour lequel on a pas de passion\)  
-* Une recherche de sens existentialiste  
-* De façon générale: mettre trop d'oeufs dans le même panier
-
-Bon management: identification des obsessions pour sublimation et orchestration unique au sein d'une équipe. Amener les gens à reconnaître et savoir mettre ces obsessions de côté des fois pour le bien commun \(et in fine pour tirer le meilleur parti de cs obsessions\). Et aussi: envie de voir les gens surpasser le dit manager dans leur domaine. Recruter des gens qui challengent le statu quo.
-
-Idéalement dans un boulot on peut dire "Cet aspect me fait chier, je préfère ne pas faire ça / comme ça. Je vais plutôt faire ça / comme ça. Ce n'est pas le plus efficace toutes choses égales par ailleurs, mais le **supplément d'âme** que j'aurais à être dans une approche kiffante pour moi sera bénéfique pour la boîte et pour moi !". C'est la même chose que, de façon plus générale, quand on ose exprimer son désaccord sans avoir peur de représailles. C'est pas toujours possible mais c'est d'importance vitale de pouvoir le faire autant que possible \(image en tête: un connard dans la rue qui fait exprès de provoquer les gens. Besoin de le recadrer VS inutilité de la mise en danger\).
-
-Mes particularités:
-
-* Je suis dans la fermentation / décantation, l'observation, le retournement / détournement
-* J'aime écrire, décrire, éclairicir pour mettre à jour les liens profonds entre les choses / personnes, lever des lièvres
-* Voir / aider les autre à trouver ce qui leur plaît
 
 A l'école \(de la vie\):
 
@@ -91,16 +60,7 @@ Comment nous utilisons notre argent / tout "avantage" est plus important que le 
 
 Indexer la capacité à croître d'une entreprise sur le nombre de ses salariés ?
 
-Contre le décrochage scolaire:
 
-* laisser l'école telle qu'elle est dans le majeure partie
-* pour ceux qui décrochent: leur proposer une alternative \(fais ce dont tu as envie, on essaie de t'accompagner\)
-* l'école est une chance: ceux qui ne la prennent pas sont invités à rester chez eux
-  bénéfices attendus:
-* les profs ne sont pas tenus de faire respecter la discipline, encouragés à se reconnecter avec le plaisir de transmettre
-* un élève est responsabilisé face à sa propre éducation, et ressent une forme de respect de la part des enseignant
-
-=&gt; va dans la partie agenda politique / éducation.
 
 Quand on s'est éfforcé de remettre à plat l'énoncé même du problème \(et un problème == une contradiction apparente\).:
 
