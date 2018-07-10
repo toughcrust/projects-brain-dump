@@ -1,3 +1,22 @@
+**Télé**
+VICEland + VICE
+Reportages Arte
+BBC documentaries ?
+
+**comics / art**
+HEY ! magazine
+XKCD
+http://dilbert.com/
+Christopher Niemman
+Du banksy & co ? 
+
+**Humour**
+Vincent dedienne
+Chris esquerre
+John oliver
+Action discrète
+Amy schumer
+
 La horde du contrevent  
 Fight club  
 Shaun of the dead  

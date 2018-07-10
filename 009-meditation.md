@@ -1,3 +1,5 @@
+
+
 https://www.youtube.com/watch?v=YV5KAbV34NU
 cool un truc comme ça pour chater et musique + percu en marchant !
 
@@ -33,11 +35,10 @@ http://journals.sfu.ca/seemj/index.php/seemj/article/viewFile/387/349
 https://www.scribd.com/doc/202351974/Spiritual-Results-Music-Study: 
 Analyse de l'impact d'un CD "Spriritual results" music (432Hz, chakras, etc.) sur le "human biofield" => visualisation des émissions d'un corps humain.
 
-\*\*Symbolique
-
-* \*\*Ma veste de couleur orange qui me fait sentir plein d'énergie  
+Symbolique
+* Ma veste de couleur orange qui me fait sentir plein d'énergie  
 * Le morceau de bambou que je tenais comme un sceptre / une épée pour méditer  
-* Himmelis \(que juste je trouve beau ou y'a plus / mesurables\) ?  
+* Himmelis ?  
 * Regarder dans bouquin sur la Wicca les runes !
 
 [https://kripalu.org/resources/incredible-power-kirtan-kriya-conversation-brain-health-and-longevity-dr-chris-walling](https://kripalu.org/resources/incredible-power-kirtan-kriya-conversation-brain-health-and-longevity-dr-chris-walling)
