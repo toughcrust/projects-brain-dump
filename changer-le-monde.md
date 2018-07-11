@@ -1,3 +1,7 @@
+**Co-construction des lois**
+Mécanisme à la Git ?
+Faire des pré-lois ! Des citoyens s'engagent à respecter une loi.
+
 Il faut un département de la terre:  
 tu ne paie rien si tu ne touche pas à la parcelle que tu possèdes. Tu es obligée de louer gratieusement si tu possèdes plus que la fraction dont tu as le droit.  
 Si as un logement dessus =&gt; tu paies des taxes en fonction de la dégradation engrangée  
