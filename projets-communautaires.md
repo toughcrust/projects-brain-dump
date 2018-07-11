@@ -25,4 +25,5 @@ catégoriser les idées selon masse critique, graduel ou grand saut, etc ...
 
 **Production alimentaire**
 Faire du bon gras bio à partir d'insectes / de petits organismes vivants ?
+https://urbancommons.paris/babylone.html
 
