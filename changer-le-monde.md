@@ -15,6 +15,9 @@ En même temps, il faut garantir des droits élémentaires: des fruits et légum
 demande d'un logement de base =&gt; l'état doit répondre à la demande en 6 mois max.  
 demande d'una allocation nourriture =&gt; soit soupe / pain / etc , soit de quoi cuisiner \(légumes de saison bio\)
 
+**finances**
+Que ce soit impôts ou placements monétaires: on devrait être informés d'à quoi ça sert. Et limiter les placements => moins de spéculation, plus d'implication, plus de traçabillité.
+
 **Education**
 Contre le décrochage scolaire:
 

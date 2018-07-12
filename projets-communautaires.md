@@ -51,3 +51,9 @@ catégoriser les idées selon masse critique, graduel ou grand saut, etc ...
 Faire du bon gras bio à partir d'insectes / de petits organismes vivants ?
 https://urbancommons.paris/babylone.html
 
+**Beautiful bubble**
+Aider un mec à vivre son idéal de société => les autres font en sorte de l'aider.
+Ex: vivre sans produire de déchets, vivre dans une communauté soudée, etc.
+
+
+
