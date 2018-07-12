@@ -1,4 +1,4 @@
-
+Cow om! => de la relaxation à partir de meuglements.
 
 https://www.youtube.com/watch?v=YV5KAbV34NU
 cool un truc comme ça pour chater et musique + percu en marchant !
@@ -40,6 +40,11 @@ Symbolique
 * Le morceau de bambou que je tenais comme un sceptre / une épée pour méditer  
 * Himmelis ?  
 * Regarder dans bouquin sur la Wicca les runes !
+
+**Protéodies de la DMT!? **
+
+Protéodies neurosciences Python dynamisation eau !! 💘
+http://www.touzet.org/Claude/Web-Fac-Claude/page_perso_TOUZET_Enseignement.html
 
 [https://kripalu.org/resources/incredible-power-kirtan-kriya-conversation-brain-health-and-longevity-dr-chris-walling](https://kripalu.org/resources/incredible-power-kirtan-kriya-conversation-brain-health-and-longevity-dr-chris-walling)
 

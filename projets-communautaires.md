@@ -1,3 +1,24 @@
+**ANV déchets**
+Une maquette de où vont les déchets (un truc qui se balade à vélo ?)
+Sur les poubelles un graphique qui montre où va un sachet plastique:
+
+```
+  Nourrissez la Terre
+  -----------
+  |         | 33% incinéré
+  -----------
+  |         | 25% se retrouve dans l'océan
+  -----------
+  |         | etc.
+  -----------
+  Merci !
+
+```
+
+
+
+
+
 Faire un stage permaculture avec man ? https://www.ognon.org/initiation-a-la-permaculture-formation/
 
 Agriculture syntropique: http://www.agroforesterie.fr/actualites/2018/documents/Plaquette-presentation-Agriculture-Syntropique-Ernst-Gotsch-AFAF.pdf

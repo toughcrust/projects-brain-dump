@@ -8,7 +8,7 @@
 * [Aventures coolos](006-vacances.md)
 * [Trucs ésotériques](007-esoterique.md)
 * [Agenda politique](008-politique.md)
-* [Son / techno / méditation](009-meditation.md)
+* [Hacks mystiques](009-meditation.md)
 * [Ukulele](010-ukulele.md)
 * [Convivial !](011-convivial.md)
 * [Idées à donner](012-idees.md)

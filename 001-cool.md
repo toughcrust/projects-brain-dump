@@ -8,6 +8,7 @@ http://www.terre-de-mysteres.fr/livres/entites-et-parasites-energetiques.html
 https://www.amazon.com/dp/B06X94WVHW/ref=sspa_dk_detail_2?psc=1
 https://www.amazon.com/Complete-Idiots-Guide-Psychic-Intuition/product-reviews/1615641955/ref=cm_cr_dp_d_show_all_btm?ie=UTF8&reviewerType=all_reviews
 https://www.amazon.fr/Qui-peur-mort-Nnedi-Okorafor/product-reviews/2366298544/ref=dpx_acr_txt?showViewpoints=1
+Joyeux bordel
 
 **OUI !**  
 [https://medium.com/@ralphammer/a-quick-beginners-guide-to-drawing-58213877715e](https://medium.com/@ralphammer/a-quick-beginners-guide-to-drawing-58213877715e)  

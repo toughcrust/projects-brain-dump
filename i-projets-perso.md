@@ -3,6 +3,7 @@ filtre à eau: https://www.berkeywaterfilterseurope.fr/
 
 **Culture**
 Marc de café + caca = bonheur ?
+Graines de roquette ou chia dans du caca ?
 
 **Tiny house**
 Construire ma tiny house? Et partir autour du monde ?
@@ -13,6 +14,5 @@ Comment passer facilement d'un unique tiny house à une communauté et que ce so
 **Sauna**
 un sauna à base de bouilloir + sac poubelle à mettre dans sa douche pour éviter les douches chaudes.
 
-
 **Cuisine**
-Fermentation de noix de coco 
+Fermentation de noix de coco râpée
