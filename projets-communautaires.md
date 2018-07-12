@@ -18,7 +18,8 @@ Sur les poubelles un graphique qui montre où va un sachet plastique:
 **Sport**
 Course / CO urbaine type trail de montmartre. 
 
-
+**Collecte caca**
+on collecte du caca => on fait pousser du bambou et des fleurs
 
 Faire un stage permaculture avec man ? https://www.ognon.org/initiation-a-la-permaculture-formation/
 
