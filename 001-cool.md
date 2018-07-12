@@ -24,8 +24,6 @@ http://www.say-yess.com/2018/17797/petit-manuel-de-resistance-contemporaine/
 http://journals.rudn.ru/philosophy/article/download/14055/13304 =&gt; Rumi et Nietszche  
 http://dergipark.ulakbim.gov.tr/kaygi/article/viewFile/5000192057/5000167520 =&gt; Nietszche & Spinoza
 
-**Docus**  
-Merci patron
 
 **Films**  
 life aquatic wes andersen
@@ -58,3 +56,5 @@ Oscar Wilde
 **Directeurs à check**  
 Jodorowsky, Godard, Garrel, Spike Jonze, Fatih Akin, Hassen Ferhani, Guillaume Brac, Lynch, Aronofsky, Gaspard Noé
 
+**Jeux**
+makestorming de Nod A

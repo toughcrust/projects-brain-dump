@@ -2,6 +2,8 @@ Faire un stage permaculture avec man ? https://www.ognon.org/initiation-a-la-per
 
 Agriculture syntropique: http://www.agroforesterie.fr/actualites/2018/documents/Plaquette-presentation-Agriculture-Syntropique-Ernst-Gotsch-AFAF.pdf
 
+A financer ! potager hors sol: https://www.zeste.coop/fr/decouvrez-les-projets/detail/projet-cube?utm_source=Newsletter&utm_medium=Mail&utm_campaign=ZesteJuillet2018
+
 **Végétalisation de la ville**  
 Dans la ville, dans ma chambre avoir une putain de prod abondante. Idéalemnt de la végétation qui bouffe la ville, reprend sur le béton.
 

@@ -16,3 +16,5 @@ un sauna à base de bouilloir + sac poubelle à mettre dans sa douche pour évit
 
 
 
+**Cuisine**
+Fermentation de noix de coco 
