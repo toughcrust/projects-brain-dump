@@ -1,3 +1,6 @@
+Ces dragons qui se battent pour moi
+Ma mégalomanie se manifeste par une superposition de mon rêve individuel au rêve collectif. Des dragons que je visualise pour exprimer mes désirs dans ce monde. Comme pour ma santé physique mon mental rationnel a une marge de manœuvre limitée à ce qui est conscientisé.
+
 **Techniques de méditation**
 Autour de moi, pleins d'influences: astres, collègues, famille, pensées collectives, mon bide, l'absence de nature, etc.
 Expiration: Je m'abandonne (petite mort), laisser venir l'inspiration

@@ -5,6 +5,7 @@ Mongolie en transsibérien
 Crapahutage dans les balkans
 Trail dans les Pyrénées
 Espagne
+- en bossant: http://www.packyourskills.com/ ?
 
 **Hébergement**
 couch surfing
