@@ -1,3 +1,30 @@
+**Techniques de méditation**
+Autour de moi, pleins d'influences: astres, collègues, famille, pensées collectives, mon bide, l'absence de nature, etc.
+Expiration: Je m'abandonne (petite mort), laisser venir l'inspiration
+Inspiration: Je m'extrait des influences pour suivre l'inspiration (lumière blanche qui vivifie)
+
+Retour sur la méditation guidée que je me suis faite:
+Meditation guidée par moi:
+c'était cool. J'ai envie de plus:
+- plus guidé, plus court (enchaîner aléatoirement des ptits extraits)
+Prendre à revers les méditations classiques c'était bien. Les bruits de la rue inattendus mais cools
+La sensualité de la respiration c'était bien.
+Le côté "la peur est normal mais là t'as un désir puissant de calme" c'était cool
+les blagues c'est cool. Le "je suis toi mais pas toi" aussi
+Dire "tu vas avoir des frissons / même gémir" ça marche bien
+Décollage entre corps NRJ et corps physique pareil ça marche bien.
+à faire:
+- dire de laisser les yeux gigoter (le répéter régulièrement)
+- évacuer le stress (liquéfaction par ex), ça manquait grave !
+- la respiration qui va rejoindre directement certaines parties du corps
+- inspiration / expiration saccadées ?
+- expérience de mort ?
+Note: bouger les extrémités jusqu'à épuisement c'était bien !
+**Idée d'app**
+L'app m'interroge pendant la journée: "qu'est-ce que tu ressens là maintenant ?"
+"Et si tu pouvais voler, que ferais-tu", etc. => génération d'une méditation à partir de ça.
+Mélangé avec des propositions de musique / couleurs ?
+
 Cow om! => de la relaxation à partir de meuglements.
 
 https://www.youtube.com/watch?v=YV5KAbV34NU
@@ -7,7 +34,8 @@ Exercice de respi à essayer: kapalabhati
 
 https://usbeketrica.com/article/pedro-winter-la-confrontation-humain-ordinateur-me-fascine
 
-Les gongs c'est cool! 
+Les gongs c'est cool: http://ffky.fr/techniques-associees/gong-2/
+
 
 https://www.awakeninthedream.com/articles/the-sacred-art-of-alchemy
 

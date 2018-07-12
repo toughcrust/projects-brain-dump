@@ -1,12 +1,13 @@
 Me & others & society: useful, glowing and disposable !
 
 
+dans les actis / mots clés: Hacker, empower et montrer l'absurde
+
+importance de l'inspiration / admiration. Qui on admire dit beaucoup de ce qui nous attire. Moi: Antoine de Maxilly / Orelsan / Sébastien Arsac (L214) ?
 
 
-
-
-
-
+**Exercice**:
+se retenir de trouver une quelconque solution à un quelconque problème. ça m'a l'air super relaxant.
 
 
 https://uxplanet.org/10-small-design-mistakes-we-still-make-1cd5f60bc708
