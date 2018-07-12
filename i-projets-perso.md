@@ -14,7 +14,5 @@ Comment passer facilement d'un unique tiny house à une communauté et que ce so
 un sauna à base de bouilloir + sac poubelle à mettre dans sa douche pour éviter les douches chaudes.
 
 
-
-
 **Cuisine**
 Fermentation de noix de coco 
