@@ -1,3 +1,10 @@
+Piqué dans un article:
+The scientific definition of an epiphany consistes of 3 crucial elements:
+abandoning the old ineffective thoughts (i.e. breaking mental fixation);
+formulating the new and effective thoughts (forming the new novel associations)
+experiencing the intense thrilling feeling of “Aha”
+
+
 Me & others & society: useful, glowing and disposable !
 
 

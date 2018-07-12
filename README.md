@@ -4,6 +4,7 @@ https://entrepreneurshandbook.co/10-lies-people-believe-about-success-51ad0d0a5c
 
 
 
+
 Remarque importante sur la sincérité  
 On est incapable de traiter seul un problème notre cerveau à besoin de le matérialiser
 

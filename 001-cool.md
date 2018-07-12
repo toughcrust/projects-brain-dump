@@ -10,6 +10,9 @@ https://www.amazon.com/Complete-Idiots-Guide-Psychic-Intuition/product-reviews/1
 https://www.amazon.fr/Qui-peur-mort-Nnedi-Okorafor/product-reviews/2366298544/ref=dpx_acr_txt?showViewpoints=1
 Joyeux bordel
 https://www.amazon.com/Energy-Medicine-Balancing-Energies-Vitality/dp/1585426504/ref=mp_s_a_1_3?ie=UTF8&qid=1528231998&sr=8-3&pi=AC_SX236_SY340_FMwebp_QL65&keywords=energy+healing&dpPl=1&dpID=4129pWsXQDL&ref=plSrch
+https://www.amazon.com/Eyes-Open-Self-Hypnosis-Uncommon-ebook/dp/B0085QBKM8/ref=redir_mobile_desktop?_encoding=UTF8&%2AVersion%2A=1&%2Aentries%2A=0#sitbEndAction_1527429924479
+https://www.amazon.com/Surely-Youre-Joking-Mr-Feynman/dp/0393355624/ref=sr_1_1?ie=UTF8&qid=1531427298&sr=8-1&keywords=surely+you%27re+joking+mr.+feynman
+https://www.amazon.com/Worry-Less-About-Money-School-ebook/dp/B007G7IW3C/ref=as_li_ss_tl?s=digital-text&ie=UTF8&qid=1527670736&sr=1-1&keywords=how+to+worry+less+about+money&linkCode=sl1&tag=mmeditations-20&linkId=f9b1f5882ebb2a308d910ca5ca00bcfb
 
 **OUI !**  
 [https://medium.com/@ralphammer/a-quick-beginners-guide-to-drawing-58213877715e](https://medium.com/@ralphammer/a-quick-beginners-guide-to-drawing-58213877715e)  
