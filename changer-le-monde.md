@@ -15,6 +15,18 @@ En même temps, il faut garantir des droits élémentaires: des fruits et légum
 demande d'un logement de base =&gt; l'état doit répondre à la demande en 6 mois max.  
 demande d'una allocation nourriture =&gt; soit soupe / pain / etc , soit de quoi cuisiner \(légumes de saison bio\)
 
+**être constituant** 
+=> redevenir un adulte politique avec souveraineté
+Les jurés civils, ateliers constituants => les gens se transforment en voyant les gens agir pour le bien commun
+https://www.amazon.fr/Pierre-Joseph-Proudhon-Lanarchie-sans-d%C3%A9sordre/dp/2746745453
+
+Au niveau perso et inter-perso: le conflit d'intérêt => déclaration d'intérêt ! ca nous sauve de pleins de trucs à la con => pas besoin de revenu universel si on limite les écarts de salaire.
+Chacun remplirait un contrat d'éthique:
+Je crois qu'un écart de salaire de X euros est indécent
+Je crois qu'on ne devrait pas avoir de casier judiciaire pour être élu
+
+Ethique > Loi. L'éthique vient se placer au dessus de la loi (plus restrictive)
+
 **finances**
 Que ce soit impôts ou placements monétaires: on devrait être informés d'à quoi ça sert. Et limiter les placements => moins de spéculation, plus d'implication, plus de traçabillité.
 

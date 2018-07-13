@@ -63,6 +63,9 @@ des toilettes dans la rue => création de compost => végétalisation de la vill
 Typique d'un appel à projet "budget participatif" de la ville de Paris.
 http://humanurehandbook.com/
 
+**Politique**
+Deux libertaires gascons unis par une pensée commune
+http://www.piecesetmaindoeuvre.com/IMG/pdf/bcje_toile.pdf
 
 **Low tech lab**
 Terrestrial space station:  
