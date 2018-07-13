@@ -14,6 +14,8 @@ Sur les poubelles un graphique qui montre où va un sachet plastique:
   Merci !
 
 ```
+Initiation au tri:
+On reprend le pouvoir et on peut décider ou vont nos dechets: mer, à brûler, etc.
 
 **Sport**
 Course / CO urbaine type trail de montmartre. 
