@@ -16,6 +16,8 @@ Sur les poubelles un graphique qui montre où va un sachet plastique:
 ```
 Initiation au tri:
 On reprend le pouvoir et on peut décider ou vont nos dechets: mer, à brûler, etc.
+Réduire l'empreinte des déchets => mettre directement les déchets dans la Seine. 
+
 
 **Sport**
 Course / CO urbaine type trail de montmartre. 
