@@ -18,6 +18,12 @@ demande d'una allocation nourriture =&gt; soit soupe / pain / etc , soit de quoi
 **finances**
 Que ce soit impôts ou placements monétaires: on devrait être informés d'à quoi ça sert. Et limiter les placements => moins de spéculation, plus d'implication, plus de traçabillité.
 
+Chartalisme: état créé l'argent, distribue. Récupère via les impôts.
+Et si chacun créait son argent ?
+"Emis par Cédric Codet"
+"Emis par la commune de blabla"
+=> Stephane Laborde ! "Monnaie libre"
+
 **Education**
 Contre le décrochage scolaire:
 

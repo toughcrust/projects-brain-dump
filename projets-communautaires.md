@@ -33,6 +33,8 @@ Ou plus réaliste: pique nique aide au tri à vincennes avec le twist final: et 
 Pour le vélo et la pollution: faire un appareillage impressionant censé dépolluer l'air pour le cycliste => je me préoccupe pas de vous automobilistes, voilà où j'en suis réduit.
 => Low tech de lutte contre les particules fines.
 
+CONTRE COM'S ! => Faire la promotion des trucs cools qui rapportent rien :D 
+
 **Sport**
 Course / CO urbaine type trail de montmartre. 
 
