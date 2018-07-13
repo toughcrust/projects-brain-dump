@@ -7,8 +7,7 @@ Sur les poubelles un graphique qui montre où va un sachet plastique:
   -----------
   |         | 33% incinéré
   -----------
-  |         | 25% se retrouve dans      584    0.002    0.000    3.632    0.006 /home/grocker/app.venv/lib/python3.6/site-packages/filio/web_apis/v1/resources/files.py:168(to_representation)
- l'océan
+  |         | 25% se retrouve dans    l'océan
   -----------
   |         | etc.
   -----------
