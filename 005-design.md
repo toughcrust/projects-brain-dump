@@ -1,3 +1,5 @@
+Transform absurdity into goodness
+
 Piqué dans un article:
 The scientific definition of an epiphany consistes of 3 crucial elements:
 abandoning the old ineffective thoughts (i.e. breaking mental fixation);
