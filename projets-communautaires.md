@@ -1,4 +1,4 @@
-**ANV déchets**
+**ANV**
 Une maquette de où vont les déchets (un truc qui se balade à vélo ?)
 Sur les poubelles un graphique qui montre où va un sachet plastique:
 
@@ -7,7 +7,8 @@ Sur les poubelles un graphique qui montre où va un sachet plastique:
   -----------
   |         | 33% incinéré
   -----------
-  |         | 25% se retrouve dans l'océan
+  |         | 25% se retrouve dans      584    0.002    0.000    3.632    0.006 /home/grocker/app.venv/lib/python3.6/site-packages/filio/web_apis/v1/resources/files.py:168(to_representation)
+ l'océan
   -----------
   |         | etc.
   -----------
@@ -18,6 +19,10 @@ Initiation au tri:
 On reprend le pouvoir et on peut décider ou vont nos dechets: mer, à brûler, etc.
 Réduire l'empreinte des déchets => mettre directement les déchets dans la Seine. 
 
+Ou plus réaliste: pique nique aide au tri à vincennes avec le twist final: et votre plastique vous voulez l'incinérer / le mettre en mer? 
+
+Pour le vélo et la pollution: faire un appareillage impressionant censé dépolluer l'air pour le cycliste => je me préoccupe pas de vous automobilistes, voilà où j'en suis réduit.
+=> Low tech de lutte contre les particules fines.
 
 **Sport**
 Course / CO urbaine type trail de montmartre. 
