@@ -1,4 +1,14 @@
 **ANV**
+Carrefour s'engage
+Faire une fausse animation en sortir de supermarché: vracifier les courses en jetant les emballages.
+Il faut absolument le faire de façon intelligente: montrer à soi même la réalité de la situation des freins des ressorts psychologiques. Toucher au coeur du pourquoi la transition n'est pas faite. Exposer nos biais cognitifs.
+Canular: j'adore.
+Faire en sorte que les gens soient stimulés, qu'on ne viennent pas leur asséner un truc mais plutôt utiliser leur intelligence collective pour résoudre un problème vu sous une perspective engageante.
+Créer du lien immédiat, de la convivialité.
+Aller au fond des problèmes. pouffer, ne pas se prendre au sérieux, exagérer font honte aux idées qui nous anime
+faire du covoiturage de vélo !!! => chacun amène son vélo, on les accroche ensemble => sécu, convivial, militant, pas trop d'investissement
+Peut on se forger une opinion sans être à un moment dans l'opposition (et conscient de l'être, vis à vis de tous)? => citation "pour comprendre le monde il faut essayer de le changer" => philo du hacker
+
 Une maquette de où vont les déchets (un truc qui se balade à vélo ?)
 Sur les poubelles un graphique qui montre où va un sachet plastique:
 
