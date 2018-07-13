@@ -4,6 +4,7 @@ abandoning the old ineffective thoughts (i.e. breaking mental fixation);
 formulating the new and effective thoughts (forming the new novel associations)
 experiencing the intense thrilling feeling of “Aha”
 
+http://makestorming.com/outils/freemium
 
 Me & others & society: useful, glowing and disposable !
 
