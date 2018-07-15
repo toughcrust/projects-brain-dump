@@ -53,20 +53,10 @@ Partir de la pllénitude. Ex, pour écrire un bouquin: commencer par écrire une
 
 > Thought provoking fun !
 
-
-
 > Open and honest recognition of **human nature dark aspects and incompleteness**. This way you can really define and pursue valuable ideals !
-
-
-
-
 
 I'd like to age in something like a badass transsexual grandpa eventually. You know, **no shit, low appetite,  
 big laugh, big mouth, looking after of the offspring**. Having been satisfied an all levels, I now take pleasure in nurturing lifes, Life, what may live ... I'll plant trees 
-
-
-
-`for a life full of meaning, you don't follow your passions, your passions follow you` \(contexte: faire ce qui nous attire, là où on réussit, la psssion suivra\)
 
 Ma définition de la spiritualité: le vertige de se dire "Qu'est-ce que je fais là ? WTF is I BTW ???"
 
@@ -80,7 +70,7 @@ Vouloir se connecter à une partie de soi qui serait loin est un non sens source
 Une fois libéré, en extase, je peux digérer, ralentir, choisir ce qui rentre ou pas dans mon corps. J'analyse les sons et je me laisse vibrer par ceux qui résonent en moi. Je commence doucement et je peux comme ça devenir une musique à moi seul.
 
 
-Ce qui a une consistance, ce sont le plaisir et la douleur. Derrière une morale rigoriste se cache une recherche de plaisir voilée, qui ne dit pas son nom. Les désirs de plaisir n'ont pas de raison d'être réalistes
+Ce qui a une consistance, ce sont le plaisir et la douleur. Derrière une morale rigoriste se cache une recherche de plaisir voilée, qui ne dit pas son nom.
 
 Se poser la question de ma propension à la joie ne peut a priori que l'étendre. Postuler une quelconque limitation impose une restriction volontaire. C'est la même chose pour le libre arbitre.
 
@@ -101,10 +91,3 @@ Se marrer ensemble, dans une situation que l'on s'est créée: qu'est-ce qui peu
 nous a créé dans un but bien différent, est-ce qu'il ne faut pas du coup lui rire à la gueule et/ ou le combattre \(sausage party\)
 
 Ne pas se fragmenter: garder à l'esprit tout ce qu'on a vécu! Se ré-ouvrir à ce qu'on a tenu pour vrai ou important, ou ce qu'on pourrait. Bien se défragmenter: Passe par la capacité à accueillir en moi ce qui est fragmenté sans chercher à le changer. Ex la partie de moi qui veut vivre de manière insouciante et delibérément fragmentée
-
-
-
-
-
-
-
