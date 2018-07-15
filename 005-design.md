@@ -1,4 +1,25 @@
-Transform absurdity into goodness
+Mes KPIs de design:
+
+* utile & chaleureux
+* dispensable & joli
+
+Design checklist / wishlist
+
+* suis nos aspirations \(aspirationnal\)
+* simple, sans contrainte / pré-requis / préavis \(enjoyable, disposable\)
+* dépasse la nature animale de l'homme \("Let's get better together"\)
+* Find common ground \(inclusive\)
+* Pleasurable
+* antifragile: les épreuves rendent plus fort =&gt; utiliser les signaux de douleur pour se renforcer
+* nourrissier \(blue economy\)
+* weird is good. carnaval spirit
+* "no smart ass" =&gt; fonctionnement explicite, explicable. mode dégradé pensé comme inévitable
+* progressive & natural when possible \(macher plutôt qu'appareil dentaire, marcher plutôt qu'exos barefoot\) =&gt; dés que possible
+  éviter les grands chamboulements risqués et où on perd d'abord avant d'éventuellement y gagner \(=&gt; build faith don't expect it\)
+
+
+
+Trasmute absurdity into goodness
 
 Piqué dans un article:
 The scientific definition of an epiphany consistes of 3 crucial elements:

@@ -46,3 +46,7 @@ Contre le décrochage scolaire:
 * les profs ne sont pas tenus de faire respecter la discipline, encouragés à se reconnecter avec le plaisir de transmettre
 * un élève est responsabilisé face à sa propre éducation, et ressent une forme de respect de la part des enseignant
 
+* quel métier les gens font penser qu'il ne sont pas fait pour toi ?
+* pour lesquels n'es-tu pas assez intelligent / fort ?
+
+
