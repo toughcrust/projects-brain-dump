@@ -79,5 +79,8 @@ https://urbancommons.paris/babylone.html
 Aider un mec à vivre son idéal de société => les autres font en sorte de l'aider.
 Ex: vivre sans produire de déchets, vivre dans une communauté soudée, etc.
 
+**Cuisine / bar de quartier**
+=> les habitants y vont pour faire la cuisine. ouverts aux ext. si place.
+
 
 
