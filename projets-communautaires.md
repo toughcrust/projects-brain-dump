@@ -54,6 +54,9 @@ Fumain, mode d'emploi: [http://permabox.ressources-permaculture.fr/3-PRODUCTION-
 http://www.lowtechmagazine.com/2010/09/recycling-animal-and-human-dung-is-the-key-to-sustainable-farming.html
 
 Sur ls toits de paris, dans les espaces partagés: [https://theconversation.com/toits-potagers-en-ville-ce-nest-pas-que-pour-faire-joli-88457](https://theconversation.com/toits-potagers-en-ville-ce-nest-pas-que-pour-faire-joli-88457)  
+
+J'aimerais bien être berger en ville: un chien, un bâton, des animaux, etc.
+
 **Récupérer merde et urine de toilettes sèches**
 
 https://www.keyhole.fr/vertika/fr/#details: un lombricomposteur de balcon avec potager intégré !
