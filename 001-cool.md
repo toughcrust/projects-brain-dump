@@ -1,22 +1,9 @@
 **Whislist Amazon**
-https://www.amazon.com/Two-Cheers-Anarchism-Meaningful-2012-10-14/product-reviews/B01FKTEK8I/ref=cm_cr_dp_d_hist_4?ie=UTF8&filterByStar=four_star&reviewerType=all_reviews#reviews-filter-bar
-https://www.amazon.com/Gnostic-New-Age-Countercultural-Revolutionized/dp/0231170769/ref=cm_cr_arp_d_product_top?ie=UTF8
-https://www.amazon.fr/Porte-Myst%C3%A9rieuse-Mont-Saint-Michel-Sentier-Daath/dp/1542361958/ref=cm_cr_arp_d_product_top?ie=UTF8
-https://www.amazon.com/Biocentrism-Consciousness-Understanding-Nature-Universe/dp/1935251740/ref=mt_paperback?_encoding=UTF8&me=&dpID=41CRcibVf8L&preST=_SY291_BO1,204,203,200_QL40_&dpSrc=detail
-https://www.amazon.com/Guns-Germs-Steel-Fates-Societies-ebook/dp/B06X1CT33R/#customerReviews
-https://www.amazon.com/Beginning-Infinity-Explanations-Transform-World/dp/0143121359/ref=as_li_ss_tl?ie=UTF8&linkCode=sl1&tag=lrc1981-20&linkId=de49096eb0ba0ffb3f5536f22e46f405
-http://www.terre-de-mysteres.fr/livres/entites-et-parasites-energetiques.html
-https://www.amazon.com/dp/B06X94WVHW/ref=sspa_dk_detail_2?psc=1
-https://www.amazon.com/Complete-Idiots-Guide-Psychic-Intuition/product-reviews/1615641955/ref=cm_cr_dp_d_show_all_btm?ie=UTF8&reviewerType=all_reviews
 https://www.amazon.fr/Qui-peur-mort-Nnedi-Okorafor/product-reviews/2366298544/ref=dpx_acr_txt?showViewpoints=1
 Joyeux bordel
-https://www.amazon.com/Energy-Medicine-Balancing-Energies-Vitality/dp/1585426504/ref=mp_s_a_1_3?ie=UTF8&qid=1528231998&sr=8-3&pi=AC_SX236_SY340_FMwebp_QL65&keywords=energy+healing&dpPl=1&dpID=4129pWsXQDL&ref=plSrch
-https://www.amazon.com/Eyes-Open-Self-Hypnosis-Uncommon-ebook/dp/B0085QBKM8/ref=redir_mobile_desktop?_encoding=UTF8&%2AVersion%2A=1&%2Aentries%2A=0#sitbEndAction_1527429924479
 https://www.amazon.com/Surely-Youre-Joking-Mr-Feynman/dp/0393355624/ref=sr_1_1?ie=UTF8&qid=1531427298&sr=8-1&keywords=surely+you%27re+joking+mr.+feynman
-https://www.amazon.com/Worry-Less-About-Money-School-ebook/dp/B007G7IW3C/ref=as_li_ss_tl?s=digital-text&ie=UTF8&qid=1527670736&sr=1-1&keywords=how+to+worry+less+about+money&linkCode=sl1&tag=mmeditations-20&linkId=f9b1f5882ebb2a308d910ca5ca00bcfb
 
 **OUI !**  
-[https://medium.com/@ralphammer/a-quick-beginners-guide-to-drawing-58213877715e](https://medium.com/@ralphammer/a-quick-beginners-guide-to-drawing-58213877715e)  
 [http://www.complex.com/pop-culture/2013/08/best-british-comedy-movies/](http://www.complex.com/pop-culture/2013/08/best-british-comedy-movies/)  
 Get out !  
 Donnie darko  
@@ -25,7 +12,6 @@ Bullhead
 Vier Minuten  
 Please like me  
 La science des rêves
-http://www.say-yess.com/2018/17797/petit-manuel-de-resistance-contemporaine/
 [https://usbeketrica.com/auteur/nicolasminvielle-olivierwathelet](https://usbeketrica.com/auteur/nicolasminvielle-olivierwathelet) =&gt; Le design fiction, 12 articles qui ont l'air assez chouette  
 http://journals.rudn.ru/philosophy/article/download/14055/13304 =&gt; Rumi et Nietszche  
 http://dergipark.ulakbim.gov.tr/kaygi/article/viewFile/5000192057/5000167520 =&gt; Nietszche & Spinoza
