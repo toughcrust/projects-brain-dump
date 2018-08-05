@@ -1,16 +1,6 @@
 “Happiness is the feeling that power increases — that resistance is being overcome.” — Nietzsche (Dans l'article qui le cite "The secret ingredient to happiness is to risk losing it.")
 
-**Dans l'esprit Deleuze / Damasio**
 
-* Faire plier la force du dehors qui nous fait plier
-* Tracer son sillage et emmener avec soi
-* Remuer / créer des tourbillons / enflammer, observer la vie prendre vie
-
-**Joue le jeu**
-
-> **Joue le jeu. Menace le travail encore plus. Ne sois pas le personnage principal**. Cherche la confrontation. Mais n’aie pas d’intention. **Évite les arrière-pensées. Ne tais rien. Sois doux et fort.** Sois malin, interviens et méprise la victoire. N’observe pas, n’examine pas, mais reste prêt pour les signes, vigilant. Sois ébranlable. **Montre tes yeux, entraîne les autres dans ce qui est profond**, prends soin de l’espace et considère chacun dans son image. Ne décide qu’enthousiasmé. Échoue avec tranquillité. Surtout aie du temps et fait des détours. Laisse-toi distraire. Mets toi pour ainsi dire en congé. **Ne néglige la voix d’aucun arbre, d’aucune eau**. **Entre où tu as envie et accorde-toi le soleil**. Oublie ta famille, **donne des forces aux inconnus**, penche-toi sur les détails, pars où il n’y a personne, **fous-toi du drame du destin**, dédaigne le malheur, **apaise le conflit de ton rire. Mets-toi dans tes couleurs, sois dans ton droit, et que le bruit des feuilles deviennent doux**. Passe par les villages, je te suis.
-
-`Peter Handke, Par les villages`
 
 **My inner peace needs a war**  
 Today I haven't had my share of love, fight, fear. The sun set a few hours ago but there's no drum to drive me crazy, dizzy and finally sloppy. I sure have my enemies, but they never show their faces. They eat me from the inside as I doubt my sanity.
@@ -42,9 +32,6 @@ Fuck me. litterally.
 
 > Vous vous ennuyez, les gens! L’actif en vous, le vif, a perdu ses adversaires, se morfond, n’a, pour ses conquêtes, plus d’espace, plus de front où aller tremper le métal de ses os ! Plus de quoi s’user, épuiser ses forces, hein? Ah si : dans les petits plaisirs : les capsules, les stimulations artificielles, la virtue, le jeu, les images… **Les gens ne sont pas morbides : ils veulent juste de l’intensité**
 
-**Pindare**
-
-> N’aspire pas, ô mon âme, à la vie éternelle, mais épuise le champ du possible.
 
 **Le problème Spinoza**
 
@@ -65,13 +52,7 @@ Fuck me. litterally.
 
 > _Le problème du déni du sujet dans la science. Dans le judaïsme, dont la tradition m’imprègne, il y a un passage de la pâque juive qui insiste sur la différence entre le sage et le pervers : le sage est celui qui s’inclut comme partie prenante de l’univers qu’il étudie, tandis que le pervers le considère du dehors. Dans cette optique-là, la science contemporaine tend à être perverse, dans la mesure où elle exclut le sujet de sa description du monde._
 
-**Drishti Bablani**
 
-> Fear is your growth agent in disguise, only if you choose fight over flight. It compels you to up your game to survive.
-
-**Sam Harris**
-
-> Consciousness is simply the light by which the contours of mind and body are known \[...\] Making this discovery, again and again, is the basis of spiritual life.
 
 **Oscar Wilde**
 

@@ -31,8 +31,6 @@ Grow psychedelic on own faeces
 
 Chia + caca :D
 
-Se couper les cheveux moi-même
-
 ### Santé
 
 * boule argile dans bouteille ? un ptit sac en coton à faire secouer ?
@@ -53,16 +51,8 @@ Sometimes when we're not looking for what we want, we find what we need
 
 =&gt; pour que ce soit plus simple de voler comme un artiste ces phrases , les reformuler comme je veux et mettre un lien vers la citation en note
 
-# Logement
-
-Je veux pouvoir:  
-bouger et revenir quand je veux  
-vivre à la nature et en ville  
-investir sans me ruiner, ne pas nourrir la spéculation immoblière
 
 **Une caravane tractée par vélo ??**
-
-Douche avec une éponge ?
 
 Sauna dans un sac poubelle ? Idée: se chauffer à mort de façon ultra écolo et reproductible pour derrrière prendre une douche froide rapidos.
 
