@@ -6,8 +6,6 @@
 * [Hacks mystiques](009-meditation.md)
 * [Convivial !](011-convivial.md)
 * [I - Projets perso](i-projets-perso.md)
-* [II - Projets communautaires](projets-communautaires.md)
-* [III - Changer le monde](changer-le-monde.md)
 * [Vrac de citations et réflexions](013-citations.md)
 * [Exploration: forêts / hommes / ville](exploration-forets-hommes-ville.md)
 * [Exploration: oracle](exploration-oracle.md)
