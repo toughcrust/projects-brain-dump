@@ -3,8 +3,6 @@
 * [Hmm ça a l'air cool](README.md)
 * [Hey c'était cool](003-was-cool.md)
 * [Le club des 27 \(réflexions\)](004-club-27.md)
-* [Hacks mystiques](009-meditation.md)
-* [Vrac de citations et réflexions](013-citations.md)
 * [Exploration: forêts / hommes / ville](exploration-forets-hommes-ville.md)
 * [Exploration: oracle](exploration-oracle.md)
 * [Exploration: le gros kiff mystique](exploration-tantra.md)
