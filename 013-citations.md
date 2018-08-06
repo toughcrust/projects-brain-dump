@@ -53,11 +53,6 @@ Fuck me. litterally.
 > _Le problème du déni du sujet dans la science. Dans le judaïsme, dont la tradition m’imprègne, il y a un passage de la pâque juive qui insiste sur la différence entre le sage et le pervers : le sage est celui qui s’inclut comme partie prenante de l’univers qu’il étudie, tandis que le pervers le considère du dehors. Dans cette optique-là, la science contemporaine tend à être perverse, dans la mesure où elle exclut le sujet de sa description du monde._
 
 
-
-**Oscar Wilde**
-
-> Pleasure is the only thing worth having a theory about
-
 **Camus**
 
 > Mal nommer les choses, c’est ajouter au malheur du monde
