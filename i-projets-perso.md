@@ -1,3 +1,3 @@
-En préambule: https://vimeo.com/259078258 (Docu "Bieng the change")
+En préambule:  (Docu "Bieng the change")
 
 
