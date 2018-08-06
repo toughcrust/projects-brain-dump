@@ -4,7 +4,6 @@
 * [Hey c'était cool](003-was-cool.md)
 * [Le club des 27 \(réflexions\)](004-club-27.md)
 * [Aventures coolos](006-vacances.md)
-* [Trucs ésotériques](007-esoterique.md)
 * [Hacks mystiques](009-meditation.md)
 * [Ukulele](010-ukulele.md)
 * [Convivial !](011-convivial.md)
@@ -14,4 +13,6 @@
 * [II - Projets communautaires](projets-communautaires.md)
 * [III - Changer le monde](changer-le-monde.md)
 * [Vrac de citations et réflexions](013-citations.md)
+* [Exploration: forêts / hommes / ville](exploration-forets-hommes-ville.md)
+* [Astrologie](007-esoterique.md)
 
