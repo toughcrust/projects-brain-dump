@@ -1,3 +1,7 @@
+Mudras intuitifs: comme de la musique d’impro ou les notes sont des mudras
+
+Envoyer une musique qui fait vibrer directement dans le coeur. Des HPs putain de puissants qui m’envoient du SOAD pleine balle dans le torse. Qu’on arrête de se niquer les tympans.
+
 Ces dragons qui se battent pour moi
 Ma mégalomanie se manifeste par une superposition de mon rêve individuel au rêve collectif. Des dragons que je visualise pour exprimer mes désirs dans ce monde. Comme pour ma santé physique mon mental rationnel a une marge de manœuvre limitée à ce qui est conscientisé.
 

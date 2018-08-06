@@ -12,21 +12,6 @@ I need cold, wild animals and spirits to fight so that I can light a fire.
 I need a tearing and hostile world so that I can long for true human binding.  
 Fuck me. litterally.
 
-**Le parti de libération des zombies**
-
-> All I have is a voice  
-> To undo the folded lie,  
-> The romantic lie in the brain  
-> Of the sensual man-in-the-street  
-> And the lie of Authority  
-> Whose buildings grope the sky:  
-> There is no such thing as the State  
-> And no one exists alone;  
-> Hunger allows no choice  
-> To the citizen or the police;  
-> We must love one another or die
-
-\(Wh auden\)
 
 **La zone du dehors**
 
@@ -38,11 +23,6 @@ Fuck me. litterally.
 > J'admire votre façon de ne pas rester à la surface des choses - d'être prêt à partager vos réflexions en toute honnêteté et en toute liberté.
 >
 > Ce vécu heureux et plein de joie est une conséquence de l'abolition de la séparation plutôt que du lien. Voilà la différence - la différence entre les hommes qui se rapprochent pour avoir chaud et les hommes qui ensemble partagent une vision joyeuse de la Nature ou de Dieu. \[...\] Il semble paradoxal de dire que les hommes sont plus utiles les uns aux autres quand ils suivent chacun leur propre chemin.
-
-**A few enthusiasting ideas for the meaning of our life**
-
-* we are the genitals our our technology, enabling it to live and prosper \(it is actually a more robust form of "life"\) a bit like in the novel `Spin`
-* we are meat harvested by ungodly gods \(hello `Sausage party`\)
 
 **L'éco-féministe Starhawk**
 
@@ -56,10 +36,3 @@ Fuck me. litterally.
 **Camus**
 
 > Mal nommer les choses, c’est ajouter au malheur du monde
-
-**Alan Watts**
-
-> It is almost as if the world gets calm as you keep calm yourself, and vice versa.
-
-
-
