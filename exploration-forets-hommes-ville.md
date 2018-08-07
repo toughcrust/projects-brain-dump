@@ -5,6 +5,7 @@ Kiffs:
 
 Idées random:
 - Création d'un réseau végétal entremêlé à la ville (quels conditions minimales pour le dev d'un réseau de com' souterrain sur toute une ville?). Adaptation des espèces aux besoins spécifiques en nourriture, protection au soleil, humidité
+- Quelle valeur dans le cadre d'une économie axée sur la productivité à tirer de la "jachère" forestière ? 
 
 Inspirations:
 - Trouver le bouquin du japonais qui fait du jardinage sans planifier
