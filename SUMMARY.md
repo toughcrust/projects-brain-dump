@@ -6,6 +6,7 @@
 * [Exploration: forêts / hommes / ville](exploration-forets-hommes-ville.md)
 * [Exploration: oracle](exploration-oracle.md)
 * [Exploration: le gros kiff mystique](exploration-tantra.md)
+* Exploration: foo-food
 * [J'en rêve !](012-idees.md)
 * [Dossier Astrologie](007-esoterique.md)
 
