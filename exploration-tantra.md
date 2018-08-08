@@ -60,8 +60,6 @@ https://usbeketrica.com/article/pedro-winter-la-confrontation-humain-ordinateur-
 Les gongs c'est cool: http://ffky.fr/techniques-associees/gong-2/
 
 
-https://www.awakeninthedream.com/articles/the-sacred-art-of-alchemy
-
 https://www.youtube.com/watch?v=c5dQiWQGpg8 "Crystal chakra 1 hour meditation"
 
 How To Open Your 7 Chakras As Explained In a Children's 
@@ -114,8 +112,7 @@ But: faire le calme pour laisser le corps es développer, le libérer de l'empri
 
 **Mudras**
 
-* Livre "Mudras for Healing and Transformation" [https://www.amazon.com/gp/aw/d/097443034X/ref=cm\_cr\_arp\_mb\_bdcrb\_top?ie=UTF8](https://www.amazon.com/gp/aw/d/097443034X/ref=cm_cr_arp_mb_bdcrb_top?ie=UTF8)
-* Permettent de débloquer, diriger les flux de chépaquoi dans le corps
+https://www.amazon.com/Mudras-Yoga-Gestures-Healing-Spiritual/dp/1848191766/ref=sr_1_1?s=books&ie=UTF8&qid=1533761310&sr=1-1&keywords=mudra
 
 Cannot be unseen: Fumer = "mudra de jesus" + respiration consciente profonde  
 Chercher à accorder mudras et chants ou musique ?
