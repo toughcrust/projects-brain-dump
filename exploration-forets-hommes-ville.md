@@ -13,3 +13,5 @@ Inspirations:
 - Labo de la ville bio-numérique: https://www.youtube.com/watch?v=cUfjcAXW098
 - Des paysages régénératifs pour l'habitat humain http://www.wholesystemsdesign.com/
 - Laisser la végétation protéger les monuments: https://theconversation.com/pourquoi-il-faut-reensauvager-les-monuments-historiques-97576?
+- Yes we camp
+- Lire le bouquin "la vie secrète des arbres"
