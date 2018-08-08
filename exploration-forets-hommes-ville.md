@@ -11,4 +11,5 @@ Inspirations:
 - Trouver le bouquin du japonais qui fait du jardinage sans planifier
 - Agro foresterie / supply chain: http://www.purprojet.com/wp-content/uploads/2017/04/Pur-Projet-Job-Description-Program-Officer-5.pdf (PUR)
 - Labo de la ville bio-numérique: https://www.youtube.com/watch?v=cUfjcAXW098
-- Des paysages régénératifs pour l'habitat humain http://www.wholesystemsdesign.com/ 
+- Des paysages régénératifs pour l'habitat humain http://www.wholesystemsdesign.com/
+- Laisser la végétation protéger les monuments: https://theconversation.com/pourquoi-il-faut-reensauvager-les-monuments-historiques-97576?
