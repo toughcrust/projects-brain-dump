@@ -1,3 +1,5 @@
+Thèmes: archétypes, contradictions, discernement, principe de sens complémentaire de celui de causalité ?
+
 Process imaginé:
 - Ecriture automatique
 - Investigation rationelle (5 whys) => question
