@@ -1,17 +1,14 @@
+**Exploration 1: DMT + Protéodies**
+La 5-MeO-DMT ou 5-méthoxy-diméthyltryptamine
+Voir https://www.researchgate.net/publication/281290122_Petit_mode_d'emploi_des_musiques_de_proteines
+Voir page bookmarkée (p374) sur les notes de musiques dans le truc d'énergies subtiles.
+
+
+
 Devant la glace:
 Yes! / No! / sourire / baillement / pleur ?
 
 Faire semblant d'avoir un orgasme en montant du grave vers les aigus ?
-
-
-
-
-
-
-
-
-
-
 
 
 Mudras intuitifs: comme de la musique d’impro ou les notes sont des mudras
@@ -99,7 +96,6 @@ http://www.touzet.org/Claude/Web-Fac-Claude/page_perso_TOUZET_Enseignement.html
 
 Les moyens entrevus \(sans chercher à les combiner a priori !\): son, geste, parole, etc.
 
-un des articles du research gate de Sternheimer: https://www.researchgate.net/publication/281290122_Petit_mode_d'emploi_des_musiques_de_proteines
 But: faire le calme pour laisser le corps es développer, le libérer de l'emprise de notre tête dans le guidon
 
 **Musiques pour méditer**
