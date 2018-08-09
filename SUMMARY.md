@@ -6,7 +6,7 @@
 * [Exploration: Self epiphany quest](exploration-oracle.md)
 * [Exploration: DMT ogasm orgy](exploration-tantra.md)
 * [Exploration: Terr. space station](exploration-foo-food.md)
-* [Exploration: Welcome home](exploration-welcome-home.md)
+* [Exploration: Uncluttered goodness](exploration-welcome-home.md)
 * [J'en rêve !](012-idees.md)
 * [Hey c'était cool](003-was-cool.md)
 * Exploration: Welcome home

@@ -1,5 +1,5 @@
 Kiffs:
-- Coopération avec un écosystème fascinant
+- Coopération avec un écosystème fascinant (peut être lié aux protéodies => Sternheimer réparation d'écosystèmes)
 - Le bien-être profnd qu'on ressent en forêt
 - Les forêts pour contre-balancer l'effet de l'H sur la planète
 
