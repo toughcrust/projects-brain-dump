@@ -1,16 +1,45 @@
+Contexte: je suis mon premier client !
+
+
 Définir le convivial. Et quand besoin l'outil convivial.
 
-Explo:
-ajouter design / feng shui / copy-writing / minimalisme / marketing convivial (= les grands voisins) / la manipulation ultime est l’honnêteté
-https://medium.com/@eugenesanu/12-tips-on-how-to-write-great-copy-for-your-product-by-david-ogilvy-cdb910fc9057
+design / copy-writing / minimalisme / marketing convivial (= les grands voisins) / la manipulation ultime est l’honnêteté
 
-=> Comme pour les autres explos trouver des MVPs très concrets (là ça pourrait être faire de ma chambre un espace cool)
-le balcon aussi !
+**ANV**
+Carrefour s'engage
+Faire une fausse animation en sortir de supermarché: vracifier les courses en jetant les emballages.
+Il faut absolument le faire de façon intelligente: montrer à soi même la réalité de la situation des freins des ressorts psychologiques. Toucher au coeur du pourquoi la transition n'est pas faite. Exposer nos biais cognitifs.
+Canular: j'adore.
+Faire en sorte que les gens soient stimulés, qu'on ne viennent pas leur asséner un truc mais plutôt utiliser leur intelligence collective pour résoudre un problème vu sous une perspective engageante.
+Créer du lien immédiat, de la convivialité.
+Aller au fond des problèmes. pouffer, ne pas se prendre au sérieux, exagérer font honte aux idées qui nous anime
+faire du covoiturage de vélo !!! => chacun amène son vélo, on les accroche ensemble => sécu, convivial, militant, pas trop d'investissement
+Peut on se forger une opinion sans être à un moment dans l'opposition (et conscient de l'être, vis à vis de tous)? => citation "pour comprendre le monde il faut essayer de le changer" => philo du hacker
 
-**Cheap spiruline**
-On peut mettre de l’urine pour la spiruline !! https://www.youtube.com/watch?v=kk7um3d8MyQ
+Une maquette de où vont les déchets (un truc qui se balade à vélo ?)
+Sur les poubelles un graphique qui montre où va un sachet plastique:
 
-* boule argile dans bouteille ? un ptit sac en coton à faire secouer ?
-* boire mon urine \(avec de l'argile ?\)
+```
+  Nourrissez la Terre
+  -----------
+  |         | 33% incinéré
+  -----------
+  |         | 25% se retrouve dans    l'océan
+  -----------
+  |         | etc.
+  -----------
+  Merci !
+
+```
+Initiation au tri:
+On reprend le pouvoir et on peut décider ou vont nos dechets: mer, à brûler, etc.
+Réduire l'empreinte des déchets => mettre directement les déchets dans la Seine. 
+
+Ou plus réaliste: pique nique aide au tri à vincennes avec le twist final: et votre plastique vous voulez l'incinérer / le mettre en mer? 
+
+Pour le vélo et la pollution: faire un appareillage impressionant censé dépolluer l'air pour le cycliste => je me préoccupe pas de vous automobilistes, voilà où j'en suis réduit.
+=> Low tech de lutte contre les particules fines.
+
+CONTRE COM'S ! => Faire la promotion des trucs cools qui rapportent rien :D
 
 
