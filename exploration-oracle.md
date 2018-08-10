@@ -3,6 +3,8 @@ Perspective qui offre une compréhension plus intelligible & intuitive, déclois
 => Réel apport sur le bien être, est-ce que cela a une raison d'exister et peut-on s'attendre à comprendre l'univers ? Par défaut je dirais "Aucune idée!". L'épiphanie en soi est un but.
 Comme le fait de chercher un sens à sa vie est un but.
 
+Faire émerger des symboles et des relations entre eux. Les actualiser.
+
 Thèmes: archétypes, contradictions, discernement, principe de sens complémentaire de celui de causalité ?
 La lecture d'un "oracle" précipite la potentialité.
 La médiation conscience / corps fonctionne par symbôles dont le langage est un sous ensemble.
