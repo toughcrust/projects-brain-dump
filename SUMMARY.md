@@ -9,5 +9,5 @@
 * [Exploration: Uncluttered goodness](exploration-welcome-home.md)
 * [J'en rêve !](012-idees.md)
 * [Hey c'était cool](003-was-cool.md)
-* Exploration: Welcome home
+* [Trucs astros](007-esoterique.md)
 
