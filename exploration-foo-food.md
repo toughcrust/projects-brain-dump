@@ -1,3 +1,12 @@
+Société technologiquement résiliente:
+- playgrounds (ex: "half earth")
+- chaos testing (ex: ne pas relever les bennes 1 semaines)
+- shit feeding (utiliser les déchets comme ressource)
+=> techno perma-culture
+
+
+
+
 En fait c'est pour assouvir mon obsession des déchets et ma radinerie notoire. Mais comme c'est pas très excitant on va se projeter dans une station coupée de tout où il va falloir survivre !
 Sur ce sujet c'est probablemnt pas malin dans l'absolu mais je ressens le besoin de partir d'un travail de reprise en main du sujet. Mettre les mains dedans avant de ptêt "passer à l'échelle" 
 

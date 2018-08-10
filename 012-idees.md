@@ -29,7 +29,7 @@ Ex: vivre sans produire de déchets, vivre dans une communauté soudée, etc.
 
 **Education**
 Qu'est-ce que tu crois qui t'es interdit (de par ton "intelligence", ton expérience, ton sexe, etc.) ? => On va te coacher pour dépasser tes peurs !
-Sinon: fais ce que tu veux, on est là pour feedback !
+Sinon: fais ce que tu veux, on est là pour feedback ! Apprendre à suivre son ressenti. Se donner l'espace pour s'aimer.
 
 **Contre les inégalités**
 Parler de l'indécence, encore et toujours ! Connaître les salaires des gens. L'argent n'est pas privé, c'est une ressource publique faite pour circuler.

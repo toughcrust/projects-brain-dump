@@ -1,5 +1,9 @@
 Contexte: je suis mon premier client !
 
+Importance de l'inspiration / admiration. Qui on admire dit beaucoup de ce qui nous attire. Moi: Antoine de Maxilly / Orelsan / Sébastien Arsac (L214) ?
+
+Manifester l’indivisible. Faire en sorte de reconnecter directement nos coeurs et nos actes aux communs. Quand on voit ensemble la même chose, quand on peut toucher et en parler sans avoir à imaginer de boîte noire ou blanche, d'expérience il n'y a plus d'avis de religions ou de philosophies divergente. Quand tout est la sous les yeux, tout est évident.
+
 
 Définir le convivial. Et quand besoin l'outil convivial.
 
@@ -41,5 +45,9 @@ Pour le vélo et la pollution: faire un appareillage impressionant censé dépol
 => Low tech de lutte contre les particules fines.
 
 CONTRE COM'S ! => Faire la promotion des trucs cools qui rapportent rien :D
+
+9 - **Burning man ce soir, \#holidaysFeeling**  
+Je veux la californie, la libération extatique ici et maintenant. Contre le voyage compulsif, boulimique et cloisonné. Contre la drogue socialement acceptable, pour la drogue personnellement et socialement profitable.
+
 
 
