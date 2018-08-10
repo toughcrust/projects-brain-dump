@@ -1,9 +1,21 @@
 Contexte: je suis mon premier client !
 
+**Inspiring oxymorons**
+> Inclusiveness that celebrates and fosters difference
+> Thought provoking wittiness
+> Open and honest recognition of **human nature dark aspects and incompleteness**
+
+I'd like to age in something like a badass transsexual grandpa eventually. You know, **no shit, low appetite,  
+big laugh, big mouth, looking after of the offspring**. Having been satisfied an all levels, I now take pleasure in nurturing lifes, Life, what may live ... I'll plant trees 
+
+**Holy shift !** aka la boîte que je créérai pas
+Do not go gentle into that bullshit
+L'outil convivitial d'Illich!
+Sinon pour le process de design: creuser à fond les questions (5 why's tout ça). Rien ne sert de se précipiter sur les solutions qui surgissent, pleins d'autres de plus en plus pertinentes vont venir à mesure que les questions gagnent en intérêt.
+
 Importance de l'inspiration / admiration. Qui on admire dit beaucoup de ce qui nous attire. Moi: Antoine de Maxilly / Orelsan / Sébastien Arsac (L214) ?
 
 Manifester l’indivisible. Faire en sorte de reconnecter directement nos coeurs et nos actes aux communs. Quand on voit ensemble la même chose, quand on peut toucher et en parler sans avoir à imaginer de boîte noire ou blanche, d'expérience il n'y a plus d'avis de religions ou de philosophies divergente. Quand tout est la sous les yeux, tout est évident.
-
 
 Définir le convivial. Et quand besoin l'outil convivial.
 

@@ -1,4 +1,4 @@
-
+Derrière toute morale il y a une recherche de kiff
 
 **[HOT TOPIC]** DMT + Protéodies:
 La 5-MeO-DMT ou 5-méthoxy-diméthyltryptamine
