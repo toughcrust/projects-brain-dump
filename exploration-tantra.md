@@ -1,3 +1,5 @@
+Bain sonore !
+
 **Exploration 1: DMT + Protéodies**
 La 5-MeO-DMT ou 5-méthoxy-diméthyltryptamine
 Voir https://www.researchgate.net/publication/281290122_Petit_mode_d'emploi_des_musiques_de_proteines
@@ -117,12 +119,6 @@ Chercher à accorder mudras et chants ou musique ?
 Cocon d'isolation  
 Lucid dreaming
 
-[http://www.edgemagazine.net/2014/05/three-mudras/](http://www.edgemagazine.net/2014/05/three-mudras/)  
-[https://chopra.com/articles/10-powerful-mudras-and-how-to-use-them](https://chopra.com/articles/10-powerful-mudras-and-how-to-use-them)  
-[https://www.aypsite.ch/lecon\_108](https://www.aypsite.ch/lecon_108)
-
-Tout ce qui est lié au détachement de conscience, changer de perspective, be turned upside down. Se vider et se ré-énergiser.
-
 Identifier dans les gestes, les sons, les musiques, etc... ce qui en résonant profondément provoque un décollement de la conscience.
 
 Au cas où pas mis + loin, combiner: musique / sons qui déphasent, relaxation, respiration, voix.
@@ -130,7 +126,7 @@ Au cas où pas mis + loin, combiner: musique / sons qui déphasent, relaxation, 
 Trucs cool à creuser:
 
 * taketina \(rythme, transe\) pas de contact n FR / Paris
-* chants polyphoniques corses \(tellement puissant\)
+* chants polyphoniques corses \(tellement puissant\) https://www.youtube.com/watch?v=zhKeAAiKyvo&feature=youtu.be
 
 contacts paris chant intuitif / polyphonique: [https://www.lechantdelavie.com/reliances.html](https://www.lechantdelavie.com/reliances.html)
 
