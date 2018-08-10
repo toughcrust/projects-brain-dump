@@ -8,6 +8,7 @@ Idées random:
 - Quelle valeur dans le cadre d'une économie axée sur la productivité à tirer de la "jachère" forestière ? 
 
 Inspirations:
+- "When i look at à forest and picture it as equal standing beings, I Feel empowered, connected."
 - Trouver le bouquin du japonais qui fait du jardinage sans planifier
 - Agro foresterie / supply chain: http://www.purprojet.com/wp-content/uploads/2017/04/Pur-Projet-Job-Description-Program-Officer-5.pdf (PUR)
 - Labo de la ville bio-numérique: https://www.youtube.com/watch?v=cUfjcAXW098
