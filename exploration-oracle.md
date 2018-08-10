@@ -1,10 +1,10 @@
-
-
 The scientific definition of an epiphany consistes of 3 crucial elements:
 - abandoning the old ineffective thoughts (i.e. breaking mental fixation);
 - formulating the new and effective thoughts (forming the new novel associations)
 - experiencing the intense thrilling feeling of “Aha”
 
+"Chaning anarchy": https://oapen.org/download?type=document&docid=341324 
+la transgression vis à vis de mes propres injonctions aussi. "Don't worry parents, I'll be OK. XOXO"
 
 
 Y aller à mon rythme, être attentif: est-ce que j’ai vraiment faim ou envie d’autre chose ? Si j’ai faim de quoi j’ai vraiment envie ? Regarder le photos de voyage: qu’est-ce qui m’a vraiment marqué, qu’est-ce qui est passé en un coup de vent et que j’ai laissé à digérer pour plus tard ? Des choses désagréables que j’ai mises de côté ptet aussi ?
