@@ -1,19 +1,41 @@
-**Cheap spiruline**
-On peut mettre de l’urine pour la spiruline !! https://www.youtube.com/watch?v=kk7um3d8MyQ
-
 **Copro culture**
 proposer des solutions à un groupe d'habitations pour une gestion raisonnée du  caca
-=> des champis dans les caves ?
+Des champis dans les caves ? Du terreau pour de la végétation ?
 
-https://lacaverne.co/ !
-Idée: mettre en lien ce genre d'initiative avec le compostage urbain :)
-+ mon idée de caca bien sûr !
-plein de caca dans les caves des immeubles pour donner des bons champis !
+ **Cuisine / bar / restau de quartier**
+On peut amener sa propre pitence, ses ingrédients ou laisser le chef ou d'autres cuisiner !
+Idée: on y vient comme on va dans son salon, pas besoin de dépenser une blinde. On partage l'équipement de cuisine.
 
 **Algrotourisme**
 En achetant des produits , on cumule des points pour aller visiter des exploitations!
 
+**thrill & chill** Salle / club de sport
+Bains banya / sauna, eau glacée, combat libre à mains nues, sorties courses pieds nus (et de nuit !) et baignade dans la Seine => bonnes souffrances. Bonne tablées, chant polyphoniques, etc.
+
+**En cabane**
 Asso de construction de cabane / soiree dans les bois.
+
+**Tiny house!**
+Un village !? 
+
+**Ministère de la terre***  
+tu ne paie rien si tu ne touche pas à la parcelle que tu possèdes. Tu es obligée de louer gratieusement si tu possèdes plus que la fraction dont tu as le droit. Si as un logement dessus tu paies des taxes en fonction de la dégradation engrangée  
+Si tu fais de la permaculture en forêt tu gagnes de l'argent pour les externalités positives, etc.
+
+**Qu'est-ce que je finance via mes impôts / achats**
+Tracer pour se rendre compte de notre impact réel: sur les paysages, les salaires, l'ambiance, etc.
+
+**Beautiful bubble**
+Aider un mec à vivre son idéal de société => les autres font en sorte de l'aider.
+Ex: vivre sans produire de déchets, vivre dans une communauté soudée, etc.
+
+**Education**
+Qu'est-ce que tu crois qui t'es interdit (de par ton "intelligence", ton expérience, ton sexe, etc.) => On va te coacher ?
+Sinon: fais ce que tu veux !
+
+**Contre les inégalités**
+Parler de l'indécence, encore et toujours ! Connaître les salaires des gens. L'argent n'est pas privé, c'est une ressource publique.
+
 
 
 
@@ -21,108 +43,19 @@ Asso de construction de cabane / soiree dans les bois.
 nom de ma boîte de design / conseil: **convivialisons** ! =&gt; coopératives de consultants et d'artisans avec leur propres sensibilités  
 La créer direct. Faire de la mission bénévole et ou perso. Un jour peut être avoir un contrat payé. Un jour peut être essayer d'en faire une source de revenu fiable. Mais avant: forme de travail epanouissante que je m'accorde et m'impose en même temps. Si pas d'objectifs de rémunération au début, trouver autre objectif. Par ex satisfaction d'un client. Même moi. Établir des objectifs
 
-**Logement coopératif**
-
-
-**thrill & chill** je reviens sur mon idée de salle partagée:  
-bains banya / sauna, sorties courses pieds nus et baignade dans la Seine  
-=&gt; souffrir à petite dose.
-
-Basic income or basic jobs ? =&gt; [https://medium.com/@simon.sarris/guaranteed-minimum-agriculture-f93a5aa38c97](https://medium.com/@simon.sarris/guaranteed-minimum-agriculture-f93a5aa38c97) Fournir des boulots d'intérêt public plutôt qu'un revenu universel.  
-**ce qui est important dans cette question du "basic revenue"**:  
-de quoi a-t-on peur initialement ? de quoi a-t-on besoin / envie ?  
-Je voudrais pouvoir: ne pas travailler / travailler sur un projet perso sans viabilité éco \(dans l'immédiat\) ou quand que ce soit \(parce que bien commun\) en vivant sur mes réserves. En étant sûr à 95% que dés que je veux reprendre une vie normale \(i-e revenir sur Paris, retrouver un logement similaire, le même boulot, le même standard de vie quoi ...\)  
-=&gt; il faut une assurance sur le standard / confort de vie.
 
 Catra corbett: Fast Packing !
 
-Commencer tout seul une "cohorte ": course pieds nus tard la nuit, boxe, bains sauvages, sauna / banya, exercices de respiration, skin brushing  
-Boxe et méditation / yoga - champs polyphoniques
 
-feu et nuit à la belle étoile \(Vexin ?\)
-
-**Idée:  
-Faire une maison 100% recyclage façon navette spatiale avec la maison du Paris durable**
-
-Grow psychedelic on own faeces
-
-Chia + caca :D
-
-### Santé
-
-* boule argile dans bouteille ? un ptit sac en coton à faire secouer ?
-* boire mon urine \(avec de l'argile ?\)
-
-### Inspiration
-
-Dropping things \(useless object, project, worry\) is as good as getting something new and useful
-
-Tiny house ?
-
-Nothing ever goes away until it has taught us what we need to know.
-
-A girlfriend once shared with me the theory about the three buckets we hold in our lives. One bucket contains our connection, another our vitality, and a third our contribution. The theory goes like this: when one bucket is empty, the others need to be filled. When you’re feeling lonely, alienated, and low on connection, boost your vitality and contribution. Take a walk, cook a nutritious meal, volunteer to bake cookies for the blood drive. When you’re feeling spent and low on energy, on stamina, perhaps you’ve been neglecting connections and contributions. Invite a few friends over for takeout and brainstorm creative projects. When you’re feeling as if you have nothing to give, nothing to contribute, fill your connection and vitality buckets.  
-=&gt; Super intéressant sur le besoin de surmonter nos manques. Sur comment l'attaque frontale peut renforcer la peur. "Se bouger les fesses, se forcer"
-
-Sometimes when we're not looking for what we want, we find what we need
-
-=&gt; pour que ce soit plus simple de voler comme un artiste ces phrases , les reformuler comme je veux et mettre un lien vers la citation en note
-
-
-**Une caravane tractée par vélo ??**
-
-Sauna dans un sac poubelle ? Idée: se chauffer à mort de façon ultra écolo et reproductible pour derrrière prendre une douche froide rapidos.
-
-
-
-
-**Eau**
 filtre à eau: https://www.berkeywaterfilterseurope.fr/
-
-**Habitat collectif**
-Tour à vélo IDF de l'habitat solidaire / collectif ?
-
-**Recyclerie**
-Faire un tour à vélo
-
-**Culture**
 Marc de café + caca = bonheur ?
 Graines de roquette ou chia dans du caca ?
 
-**Tiny house**
-Construire ma tiny house? Et partir autour du monde ?
-Et créer un village à tiny houses ?
-Surtout besoin d'une pièce pour manger, se poser, travailler avec lumière. Pour dormir de quoi on a besoin ? Pour la salle d'eau de quoi on a besoin ? sachant que le sauna ça me fait kiffer.  
-Comment passer facilement d'un unique tiny house à une communauté et que ce soit "réversible" t; mutulaisation puis on repart librement.
-http://www.bio-architects.com/architecture/2013dubldom-eng.htm
 
-**Sauna**
-un sauna à base de bouilloir + sac poubelle à mettre dans sa douche pour éviter les douches chaudes.
-
-**Cuisine**
-Fermentation de noix de coco râpée
-Infusion d acacia (confusa ?) + huile essentielle de menthe ?
-Bol tit déj:
-cacao + coco + huile de coco + graines (germées ?) + épices (cannelle, gingembre) + acacia ou h.e. menthe ? 
-
-
-
-**Co-construction des lois**
-Mécanisme à la Git ?
-Faire des pré-lois ! Des citoyens s'engagent à respecter une loi.
-
-Il faut un département de la terre:  
-tu ne paie rien si tu ne touche pas à la parcelle que tu possèdes. Tu es obligée de louer gratieusement si tu possèdes plus que la fraction dont tu as le droit.  
-Si as un logement dessus =&gt; tu paies des taxes en fonction de la dégradation engrangée  
-Si tu fais de la permaculture en forêt =&gt; tu gagnes de l'argent pour les externalités positives  
-a priori des élus / gens tirés au sort parmi des gens qualifiés: examen de bio / géologie / forestier / etc ...
-
-=&gt; ce genre de mécanisme qui va droit au but et explicite aux gens ce qui structurellement fonde le monde dans lequel on vit me paraît intéressant.  
-Faire pareil avec les ressources naturelles ? Tu brûles du pétrole =&gt; BIM taxé \(par celui qui le fait !! à lui de répercuter le coût en amont\). Les taxes sont justifiées par: ""En l'état, la France a besoin de X€ pour réparer les dégâts des entreprises et habitants. Avec en plus l'argent nécessaire à la prévention il nous faut ..." Pollueur payeur de façon très ciblée en fait. Désavantage: mise en place d'un sytème très lourd, en particulier si on veut inclure les produits étrangers. Comment rendre ça convivial, au sens de Illitch ?
-
-En même temps, il faut garantir des droits élémentaires: des fruits et légumes, un logement stable et chauffé, le droit de se former à ce qu'on veut dans les métiers utiles \(pas de numerosus clausus. Si qqun veut faire des études de médecine en // d'études de compta et philo toute sa vie, go !\). Université 100% gratuite et libre d'accès. Tout ce qu'il faut pour réussir doit être fourni. les logements gratos doivent pas être loin.  
-demande d'un logement de base =&gt; l'état doit répondre à la demande en 6 mois max.  
-demande d'una allocation nourriture =&gt; soit soupe / pain / etc , soit de quoi cuisiner \(légumes de saison bio\)
+**Déclaration d'intérêts du citoyen**
+A faire pour célébrer l'âge légal de citoyenneté. A mettre à jour, pourrait permettre de sonder les gens:
+Je crois qu'un écart de salaire de X euros est indécent
+Je crois que l'état doit être plus bienveillant que le plus bienveillant des citoyens
 
 **être constituant** 
 => redevenir un adulte politique avec souveraineté
@@ -131,32 +64,13 @@ https://www.amazon.fr/Pierre-Joseph-Proudhon-Lanarchie-sans-d%C3%A9sordre/dp/274
 
 Au niveau perso et inter-perso: le conflit d'intérêt => déclaration d'intérêt ! ca nous sauve de pleins de trucs à la con => pas besoin de revenu universel si on limite les écarts de salaire.
 Chacun remplirait un contrat d'éthique:
-Je crois qu'un écart de salaire de X euros est indécent
+
 Je crois qu'on ne devrait pas avoir de casier judiciaire pour être élu
 
 Ethique > Loi. L'éthique vient se placer au dessus de la loi (plus restrictive)
 
-**finances**
-Que ce soit impôts ou placements monétaires: on devrait être informés d'à quoi ça sert. Et limiter les placements => moins de spéculation, plus d'implication, plus de traçabillité.
 
-Chartalisme: état créé l'argent, distribue. Récupère via les impôts.
-Et si chacun créait son argent ?
-"Emis par Cédric Codet"
-"Emis par la commune de blabla"
-=> Stephane Laborde ! "Monnaie libre"
 
-**Education**
-Contre le décrochage scolaire:
-
-* laisser l'école telle qu'elle est dans le majeure partie
-* pour ceux qui décrochent: leur proposer une alternative \(fais ce dont tu as envie, on essaie de t'accompagner\)
-* l'école est une chance: ceux qui ne la prennent pas sont invités à rester chez eux
-  bénéfices attendus:
-* les profs ne sont pas tenus de faire respecter la discipline, encouragés à se reconnecter avec le plaisir de transmettre
-* un élève est responsabilisé face à sa propre éducation, et ressent une forme de respect de la part des enseignant
-
-* quel métier les gens font penser qu'il ne sont pas fait pour toi ?
-* pour lesquels n'es-tu pas assez intelligent / fort ?
 
 
 
@@ -172,27 +86,6 @@ déchets produits
 Mettre les objectifs en terme de réduction de pollution, de contrôle de la température
 Pour montrer les impacts, brûler le % de déchets à brûler chaque dimanche
 
-
-
-Utilisation de blockchain pour tracer les échanges financiers: se rendre compte d'à quoi sert notre argent: j'ai payé 1000€ à une entreprise qui utilise massivement de la main d'oeuvre exploitée 
-
-revenir à la base des échanges d'argent / de la dette:
-On fait confiance à quelqu'un pour qu'il rembourse sa dette.
-
-Donc un système où chacun peut s'endetter. On doit rendre au système. Tendre vers l'égalisation. Et on donne sa confiance à d'autres: soit sous la forme de don (parce qu'on estime que telle personne fait quelque chose d'utile au bien commun), soit sous la forme d'une autorisation à s'endetter davantage. Pour le "don", il faudrait que ce ne soit pas en un nom propre mais une entité sociale séparée => entreprise.
-
-Valeur de base: des légumes Bio ? Pur un "minage" qui ait du sens à l'inverse du bitcoin. Problème: l'argent comme valeur d'échange ne doit pas avoir de valeur intrinsèque sinon les fluctuations de la marchandise liée impacte le cours de la monnaie. A moins que ce ne soit une denrée de base ? (le sel comme moyen d'échange). Utiliser les services volontaires comme mine ?
-
-Taxer les dépenses pas les gains
-L'accumulation de biens, le capitalisme n'est pas le vrai problème. C'est un symptôme: la peur créée par une compétition qui peut ébranler des tribus entières fait naître cette boulimie. Plutôt que combattre ce mécanisme de défense, on ferait mieux de s'occuper de la manifestation de l'opulence du confort: la dépense! Taxer les acquisitions de biens plutôt que d'argent. Et taxer plus si les biens sont futiles ou nocifs pour les hommes dans leur ensemble (idée: prix exponentiel des denrées type 4x4 voyage en avion etc... en fonction de ce qu'on a déjà acheté). Aller plus loin que le revenu universel aussi en s'assurant un accès equal aux ressources ? 
-En fait ce qui est essentiel: pour ce qui touche à la nourriture, au logement, même à la culture et aux voyages, que personne ne puisse par sa puissance financière empêcher l'accès à ces ressources à ceux qui sont le moins bien lotis.
-En fait il faut pouvoir acheter ce qu'on a besoin quoi qu'il arrive ! vivre à crédit pour les choses essentielles à la survie => rééquilibrer les comptes après.
-
-Some say money does not buy happiness, What I'm sure of it should not steal others' basic right to survive
-
-LE pb du capitalisme, de l'absence de solidarité, des guerres, etc..L'attrait et la peur de la domination. Pour dépasser ça Il faut l'équivalent de:
-Tu te laisses tomber en arrière et tes collègues te rattrapent.
-=> Créer des expériences, des rites de passage où on connaît l'opulence et la misère, la solidarité et la compétition féroce ?
 
 Connaitre le salaire des gens ça facilite plein de trucs !
 Ex: je déteste les prix libres ... Comment savoir de quoi l'autre a besoin ???
@@ -269,22 +162,15 @@ http://humanurehandbook.com/
 
 **Politique**
 Deux libertaires gascons unis par une pensée commune
-http://www.piecesetmaindoeuvre.com/IMG/pdf/bcje_toile.pdf
 
-**Low tech lab**
-Terrestrial space station:  
-catégoriser les idées selon masse critique, graduel ou grand saut, etc ...
 
 **Production alimentaire**
 Faire du bon gras bio à partir d'insectes / de petits organismes vivants ?
 https://urbancommons.paris/babylone.html
 
-**Beautiful bubble**
-Aider un mec à vivre son idéal de société => les autres font en sorte de l'aider.
-Ex: vivre sans produire de déchets, vivre dans une communauté soudée, etc.
 
-**Cuisine / bar de quartier**
-=> les habitants y vont pour faire la cuisine. ouverts aux ext. si place.
+
+
 
 
 
