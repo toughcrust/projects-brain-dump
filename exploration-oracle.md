@@ -1,5 +1,7 @@
 Epiphanie:
 Perspective qui offre une compréhension plus intelligible & intuitive, décloisonne le champ d'application en ouvrant sur des champs inattendus, rend caduque des tensions
+=> Réel apport sur le bien être, est-ce que cela a une raison d'exister et peut-on s'attendre à comprendre l'univers ? Par défaut je dirais "Aucune idée!". L'épiphanie en soi est un but.
+Comme le fait de chercher un sens à sa vie est un but.
 
 Thèmes: archétypes, contradictions, discernement, principe de sens complémentaire de celui de causalité ?
 La lecture d'un "oracle" précipite la potentialité.
