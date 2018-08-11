@@ -10,16 +10,15 @@ Voir page bookmarkée \(p374\) sur les notes de musiques dans le truc d'énergie
 * https://www.wakingtimes.com/2014/05/06/opening-seven-sacred-chakras/
 * How To Open Your 7 Chakras As Explained In a Children's \(ShowAvatar: The Last Airbender S02E19 - The Guru\) [https://www.youtube.com/watch?v=StrbppmsZJw](https://www.youtube.com/watch?v=StrbppmsZJw)
 
+**\[HOT TOPIC\]** faire une XP pour voir ce que je pense de la dynamisation:
+https://www.youtube.com/watch?v=RG7XDt7axW8
+Mesure de l'énergie vitale, dynamisation de l'eau.
+On regarde son aura changer en fonction d'une eau dynamisée ou non.
 
 **A tester**
 
 * Cocon d'isolation  
 * Lucid dreaming
-
-**A voir**
-https://www.youtube.com/watch?v=5W9KIn0SIOM
-Docteur Konstantin G. Korotkov. Contexte: dynamisation de l'eau et analyse des chakras avec son système GDV par le mec qui vend des dynamiseurs (https://www.leau-lavie.com/tests/tests-energetique-et-chakras/)
-
 
 **Inspirations / idées**:
 
