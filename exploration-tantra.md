@@ -5,6 +5,7 @@ La 5-MeO-DMT ou 5-méthoxy-diméthyltryptamine
 Voir [https://www.researchgate.net/publication/281290122\_Petit\_mode\_d'emploi\_des\_musiques\_de\_proteines](https://www.researchgate.net/publication/281290122_Petit_mode_d'emploi_des_musiques_de_proteines)  
 Voir page bookmarkée \(p374\) sur les notes de musiques dans le truc d'énergies subtiles.
 "Procédé de régulation épigénétique de la biosynthèse des protéines par résonance d'échelle"
+Enoncer à voix haute le code d'une protéine ? A mettre en lien avec recherche du sa ? 
 
 **\[HOT TOPIC\]** Faire une médiation guidée avec ma voix et ces sources là:
 * https://www.wakingtimes.com/2014/05/06/opening-seven-sacred-chakras/
@@ -23,6 +24,8 @@ On regarde son aura changer en fonction d'une eau dynamisée ou non.
 **Inspirations / idées**:
 
 * Jouer des mudras de façon improvisée ou en suivant une partoche
+* C’est à travers l’expérience musicale que chacun de nous peut arriver à découvrir la vibration de base, le sa, la tonique qui correspond à notre nature profonde.
+* "Il y a une correspondance et une complémentarité entre mantra (son articulé), mudrā (geste) et svara (son musical)"
 * Balancer de la musique directement dans une partie du corps ? Par exemple du SOAD dans le coeur pour énergiser ?
 * Jouer de la musique dans un environnement clos. Baignoire ??? 
 * Ronronnement du chat ou meuglement de la vache \(nom de projet "cow om"\)
