@@ -5,6 +5,11 @@ La 5-MeO-DMT ou 5-méthoxy-diméthyltryptamine
 Voir [https://www.researchgate.net/publication/281290122\_Petit\_mode\_d'emploi\_des\_musiques\_de\_proteines](https://www.researchgate.net/publication/281290122_Petit_mode_d'emploi_des_musiques_de_proteines)  
 Voir page bookmarkée \(p374\) sur les notes de musiques dans le truc d'énergies subtiles.
 
+**\[HOT TOPIC\]** Faire une médiation guidée avec ma voix et ces sources là:
+* https://www.wakingtimes.com/2014/05/06/opening-seven-sacred-chakras/
+* How To Open Your 7 Chakras As Explained In a Children's \(ShowAvatar: The Last Airbender S02E19 - The Guru\) [https://www.youtube.com/watch?v=StrbppmsZJw](https://www.youtube.com/watch?v=StrbppmsZJw)
+
+
 **A tester**
 
 * Cocon d'isolation  
@@ -22,7 +27,6 @@ Voir page bookmarkée \(p374\) sur les notes de musiques dans le truc d'énergie
 * Jouer de la musique dans un environnement clos. Baignoire ??? 
 * Ronronnement du chat ou meuglement de la vache \(nom de projet "cow om"\)
 * Les gongs c'est cool: [http://ffky.fr/techniques-associees/gong-2/](http://ffky.fr/techniques-associees/gong-2/)
-* How To Open Your 7 Chakras As Explained In a Children's \(ShowAvatar: The Last Airbender S02E19 - The Guru\) [https://www.youtube.com/watch?v=StrbppmsZJw](https://www.youtube.com/watch?v=StrbppmsZJw)
 * Trouver un mécanisme convivial pour se faire des méditations auto-guidées. Idées random: méditation sur un oracle, génération de spectacles sons et lumières basé sur les goûts ?
 * Exercice de respi à essayer: kapalabhati
 * Art martial "Systema" \(être relâché face à la peur\) / Trouver le calme dans une musique puissante =&gt; quelque chose à faire avec une stimulation des réflexes de défense ? En tout cas une grosse séance de sport ou shadow boxing me fait du bien
