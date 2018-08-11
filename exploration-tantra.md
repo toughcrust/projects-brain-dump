@@ -4,6 +4,7 @@ Derrière toute morale il y a une recherche de kiff
 La 5-MeO-DMT ou 5-méthoxy-diméthyltryptamine  
 Voir [https://www.researchgate.net/publication/281290122\_Petit\_mode\_d'emploi\_des\_musiques\_de\_proteines](https://www.researchgate.net/publication/281290122_Petit_mode_d'emploi_des_musiques_de_proteines)  
 Voir page bookmarkée \(p374\) sur les notes de musiques dans le truc d'énergies subtiles.
+"Procédé de régulation épigénétique de la biosynthèse des protéines par résonance d'échelle"
 
 **\[HOT TOPIC\]** Faire une médiation guidée avec ma voix et ces sources là:
 * https://www.wakingtimes.com/2014/05/06/opening-seven-sacred-chakras/
@@ -15,9 +16,9 @@ Voir page bookmarkée \(p374\) sur les notes de musiques dans le truc d'énergie
 * Cocon d'isolation  
 * Lucid dreaming
 
-**A lire**  
-[http://www.touzet.org/Claude/Web-Fac-Claude/page\_perso\_TOUZET\_Enseignement.html](http://www.touzet.org/Claude/Web-Fac-Claude/page_perso_TOUZET_Enseignement.html) \(Protéodies neurosciences Python dynamisation eau !! 💘\)  
-[http://www.wakingtimes.com/2014/05/06/opening-seven-sacred-chakras/](http://www.wakingtimes.com/2014/05/06/opening-seven-sacred-chakras/)  
+**A voir**
+https://www.youtube.com/watch?v=5W9KIn0SIOM
+Docteur Konstantin G. Korotkov. Contexte: dynamisation de l'eau et analyse des chakras avec son système GDV par le mec qui vend des dynamiseurs (https://www.leau-lavie.com/tests/tests-energetique-et-chakras/)
 
 
 **Inspirations / idées**:
