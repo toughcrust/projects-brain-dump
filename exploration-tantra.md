@@ -18,6 +18,9 @@ https://www.youtube.com/watch?v=RG7XDt7axW8
 Mesure de l'énergie vitale, dynamisation de l'eau.
 On regarde son aura changer en fonction d'une eau dynamisée ou non.
 
+**\[HOT TOPIC\]** Musique à balancer sur le coeur
++ position de l'oeuf
+
 **A tester**
 
 * Cocon d'isolation  
