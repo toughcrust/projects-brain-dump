@@ -5,7 +5,8 @@ La 5-MeO-DMT ou 5-méthoxy-diméthyltryptamine
 Voir [https://www.researchgate.net/publication/281290122\_Petit\_mode\_d'emploi\_des\_musiques\_de\_proteines](https://www.researchgate.net/publication/281290122_Petit_mode_d'emploi_des_musiques_de_proteines)  
 Voir page bookmarkée \(p374\) sur les notes de musiques dans le truc d'énergies subtiles.
 "Procédé de régulation épigénétique de la biosynthèse des protéines par résonance d'échelle"
-Enoncer à voix haute le code d'une protéine ? A mettre en lien avec recherche du sa ? 
+Enoncer à voix haute le code d'une protéine ? A mettre en lien avec recherche du sa ?
+http://www.genodics.net/ (voir rachi, réseau de chercheurs indépendants)
 
 **\[HOT TOPIC\]** Faire une médiation guidée avec ma voix et ces sources là:
 * https://www.wakingtimes.com/2014/05/06/opening-seven-sacred-chakras/
