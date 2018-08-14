@@ -8,6 +8,7 @@ Voir page bookmarkée \(p374\) sur les notes de musiques dans le truc d'énergie
 Enoncer à voix haute le code d'une protéine ? A mettre en lien avec recherche du sa ?
 http://www.genodics.net/ (voir rachi, réseau de chercheurs indépendants)
 idée: suggestions de mélodies en fonction de question sur l'humeur. Apprentissage sur le ressenti de chaque musique => création d'un son par guidage + intuition de ce qu'on a besoin => génération d'une protéodie très perso. Par contre la vraie musique reste bien plus puissante. Remix de morceaux existants pour incorporer les "bonnes" notes et les "bons" rythmes ?
+https://www.youtube.com/watch?v=aHjpOzsQ9YI
 
 **\[HOT TOPIC\]** Faire une médiation guidée avec ma voix et ces sources là:
 * https://www.wakingtimes.com/2014/05/06/opening-seven-sacred-chakras/
