@@ -13,6 +13,7 @@ https://www.youtube.com/watch?v=aHjpOzsQ9YI
 **\[HOT TOPIC\]** Faire une médiation guidée avec ma voix et ces sources là:
 * https://www.wakingtimes.com/2014/05/06/opening-seven-sacred-chakras/
 * How To Open Your 7 Chakras As Explained In a Children's \(ShowAvatar: The Last Airbender S02E19 - The Guru\) [https://www.youtube.com/watch?v=StrbppmsZJw](https://www.youtube.com/watch?v=StrbppmsZJw)
+Chakranarchie ? pour tourner toutes ces "libérations" / "montée de kundalini" dans un esprit qui me convienne mieux ? 
 
 **\[HOT TOPIC\]** faire une XP pour voir ce que je pense de la dynamisation:
 https://www.youtube.com/watch?v=RG7XDt7axW8
