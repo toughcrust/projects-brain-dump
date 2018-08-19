@@ -1,3 +1,9 @@
+A éditer:
+XP cool à creuser:
+1/ son guttural qui exprime un mal être => je cherche la fréquence qui matche sur http://www.szynalski.com/tone-generator/ => je matche la tension en posant mes mains sur mon corps là où ça fait mal => j'ai avec le son (écouteurs ça a l'air nickel pour s'entendre en même temps) + les mains + je chante par dessus => ouf.
+=> trouver le souffle qui va bien pour accompagner
+nom commercial (déso pas déso) "Faites om"
+
 Derrière toute morale il y a une recherche de kiff
 
 **\[HOT TOPIC\]** DMT + Protéodies:  
@@ -9,6 +15,7 @@ Enoncer à voix haute le code d'une protéine ? A mettre en lien avec recherche 
 http://www.genodics.net/ (voir rachi, réseau de chercheurs indépendants)
 idée: suggestions de mélodies en fonction de question sur l'humeur. Apprentissage sur le ressenti de chaque musique => création d'un son par guidage + intuition de ce qu'on a besoin => génération d'une protéodie très perso. Par contre la vraie musique reste bien plus puissante. Remix de morceaux existants pour incorporer les "bonnes" notes et les "bons" rythmes ?
 https://www.youtube.com/watch?v=aHjpOzsQ9YI
+=> essayer sur le récepteur à l'endorphine si ça me fait qque chose, écrire à l'adresse mail des "chercheurs indépendants" et sinon ça me gave c'est trop complexe.
 
 **\[HOT TOPIC\]** Faire une médiation guidée avec ma voix et ces sources là:
 * https://www.wakingtimes.com/2014/05/06/opening-seven-sacred-chakras/
