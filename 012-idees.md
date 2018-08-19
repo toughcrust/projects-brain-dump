@@ -42,3 +42,6 @@ Je crois que l'état doit être plus bienveillant que le plus bienveillant des c
 **Être "constituant"** 
 => redevenir un adulte politique avec souveraineté
 Des jurés civils tirés au sort, ateliers constituants => les gens se transforment en voyant les gens agir pour le bien commun
+
+**Tests d'interdictions**
+La pub, le gratuit
