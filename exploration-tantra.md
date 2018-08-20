@@ -2,6 +2,7 @@ A éditer:
 XP cool à creuser:
 1/ son guttural qui exprime un mal être => je cherche la fréquence qui matche sur http://www.szynalski.com/tone-generator/ => je matche la tension en posant mes mains sur mon corps là où ça fait mal => j'ai avec le son (écouteurs ça a l'air nickel pour s'entendre en même temps) + les mains + je chante par dessus => ouf.
 => trouver le souffle qui va bien pour accompagner
+sinon avec pyo => micro qui enregistre le son en entrée et derrière traitement pour isoler la ou les fréquences qui vont bien !
 nom commercial (déso pas déso) "Faites om"
 
 Derrière toute morale il y a une recherche de kiff
