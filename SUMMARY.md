@@ -1,7 +1,6 @@
 # Summary
 
 * [Hmm ça a l'air cool](README.md)
-* [Le club des 27 \(réflexions\)](004-club-27.md)
 * [\[Explo\] Man feat. wild](exploration-forets-hommes-ville.md)
 * [\[Explo\] Epiphanies hunting](exploration-oracle.md)
 * [\[Explo\]  DMT ogasm](exploration-tantra.md)
