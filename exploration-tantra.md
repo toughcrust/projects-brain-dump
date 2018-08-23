@@ -1,3 +1,8 @@
+XP cool faite:
+- phase 1: chanter "intérieurement" les sons associées aux chakras pour faire monter l'énergie du haut vers le base. Se connecter à la terre et au ciel et créer un potentiel
+- phase 2: 1à respirations très conscientes, très lente. Tentative de détente maximale avant "impact"
+- phase 3: brutalement éclair qui traverse le corps jusqu'au dernier spasme
+
 A éditer:
 XP cool à creuser:
 1/ son guttural qui exprime un mal être => je cherche la fréquence qui matche sur http://www.szynalski.com/tone-generator/ => je matche la tension en posant mes mains sur mon corps là où ça fait mal => j'ai avec le son (écouteurs ça a l'air nickel pour s'entendre en même temps) + les mains + je chante par dessus => ouf.
