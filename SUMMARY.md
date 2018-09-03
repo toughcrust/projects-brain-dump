@@ -3,7 +3,7 @@
 * [Hmm ça a l'air cool](README.md)
 * [\[Explo\] Man feat. wild](exploration-forets-hommes-ville.md)
 * [\[Explo\] Epiphanies hunting](exploration-oracle.md)
-* [\[Explo\]  DMT ogasm](exploration-tantra.md)
+* [\[Explo\] Décrassage et extase](exploration-tantra.md)
 * [\[Explo\]  Terr. space station](exploration-foo-food.md)
 * [\[Explo\] L'outil convivial](exploration-welcome-home.md)
 * [J'en rêve !](012-idees.md)
