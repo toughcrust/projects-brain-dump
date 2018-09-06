@@ -3,9 +3,16 @@ The scientific definition of an epiphany consistes of 3 crucial elements:
 - formulating the new and effective thoughts (forming the new novel associations)
 - experiencing the intense thrilling feeling of “Aha”
 
-"Chaning anarchy": https://oapen.org/download?type=document&docid=341324 
-la transgression vis à vis de mes propres injonctions aussi. "Don't worry parents, I'll be OK. XOXO"
 
+Discours de la servitude volontaire: https://www.singulier.eu/textes/reference/texte/pdf/servitude.pdf
+Tools for Subversion: Illich and Žižek on Changing the World:
+https://fordham.bepress.com/cgi/viewcontent.cgi?article=1078&context=phil_babich
+Deux libertaires gascons unis par une pensée commune
+http://www.piecesetmaindoeuvre.com/IMG/pdf/bcje_toile.pdf
+Modern science and anarchism
+http://www.bibliotekacyfrowa.pl/Content/77403/Kropotkin_P_Modern_Science_and_Anarchism.pdf
+Wolfgang Pauli and the Fine-Structure Constant
+https://hal.archives-ouvertes.fr/hal-01304518/file/Wolfgang_Pauli_and_the_Fine-Structure_Constant%20ps.pdf
 
 Y aller à mon rythme, être attentif: est-ce que j’ai vraiment faim ou envie d’autre chose ? Si j’ai faim de quoi j’ai vraiment envie ? Regarder le photos de voyage: qu’est-ce qui m’a vraiment marqué, qu’est-ce qui est passé en un coup de vent et que j’ai laissé à digérer pour plus tard ? Des choses désagréables que j’ai mises de côté ptet aussi ?
 Sinon c’est dommage, ce qui n’est pas bien digéré vient obstruer :)

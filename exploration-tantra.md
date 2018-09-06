@@ -66,6 +66,8 @@ On regarde son aura changer en fonction d'une eau dynamisée ou non.
 * Déplacer toute son agitation dans les yeux. Les relâcher =&gt; mouvement de type REM \(par la respiration aller chercher les tensions et les ramener sur le yeux\)
 * [https://thenextweb.com/insights/2018/01/22/i-trained-an-ai-to-copy-my-voice-and-scared-myself-silly/](https://thenextweb.com/insights/2018/01/22/i-trained-an-ai-to-copy-my-voice-and-scared-myself-silly/)
 * Kiai (cri avec chi) Jean-Paul Duchêne / Vlady Stevanovitch. Checker la verion silencieuse !
+* https://upliftconnect.com/music-of-the-plants/
+* https://www.jmmeric.fr/index.php/appareils/l-helizeo
 
 **Géométrie "sacrée" (YUK!)**
 [https://www.google.fr/amp/s/timothytrespas.wordpress.com/2015/05/26/frequencies-sacred-harmonic-geometry-understanding-resonance-cymatics-and-the-chakras/amp/](https://www.google.fr/amp/s/timothytrespas.wordpress.com/2015/05/26/frequencies-sacred-harmonic-geometry-understanding-resonance-cymatics-and-the-chakras/amp/) (site pas fou mais intéressant !)
