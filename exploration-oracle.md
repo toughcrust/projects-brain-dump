@@ -5,6 +5,8 @@ The scientific definition of an epiphany consistes of 3 crucial elements:
 
 (ressemble aux 4 piliers du bouddhisme)
 
+Utilser l'ésotérisme avec discernement et un centrage sur soi permet d'engager des ressources plus larges que ne le permet une analyse logique pure.
+Une théorie foireuse qui permet d'expliciter ça: on ajoute de la narration, la partie intuitive du cerveau s'active.
 
 Discours de la servitude volontaire: https://www.singulier.eu/textes/reference/texte/pdf/servitude.pdf
 Tools for Subversion: Illich and Žižek on Changing the World:
