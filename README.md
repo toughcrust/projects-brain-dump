@@ -11,6 +11,10 @@ https://usbeketrica.com/auteur/nicolasminvielle-olivierwathelet: Le design ficti
 http://journals.rudn.ru/philosophy/article/download/14055/13304 =&gt; Rumi et Nietszche  
 http://dergipark.ulakbim.gov.tr/kaygi/article/viewFile/5000192057/5000167520 =&gt; Nietszche & Spinoza
 
+**Stand up**
+Dac Desproges Devos
+Tribunal des flagrants délires
+
 **Films**  
 life aquatic wes andersen
 war dogs
