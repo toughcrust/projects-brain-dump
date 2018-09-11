@@ -11,7 +11,6 @@ https://usbeketrica.com/auteur/nicolasminvielle-olivierwathelet: Le design ficti
 http://journals.rudn.ru/philosophy/article/download/14055/13304 =&gt; Rumi et Nietszche  
 http://dergipark.ulakbim.gov.tr/kaygi/article/viewFile/5000192057/5000167520 =&gt; Nietszche & Spinoza
 
-
 **Films**  
 life aquatic wes andersen
 
@@ -24,12 +23,10 @@ Uprooted, Naomi Novik
 Redshirts \(John Scalzi\)  
 The Goblin Emperor \(Katherine Addison\)
 
-**Self help**  
-Radical honesty
-
 **Essai**  
 https://www.amazon.fr/Pierre-Joseph-Proudhon-Lanarchie-sans-d%C3%A9sordre/dp/2746745453
 Joyeux bordel
+vous plaisantez Mr Feihman ?
 A Thousand Years of Nonlinear History  
 Understanding Comics: The Invisible Art \([https://www.amazon.com/Understanding-Comics-Invisible-Scott-McCloud/dp/006097625X](https://www.amazon.com/Understanding-Comics-Invisible-Scott-McCloud/dp/006097625X)\)  
 L'étonnement philosophique: https://www.amazon.fr/Létonnement-philosophique-Jeanne-Hersch/dp/2070327841/ref=sr\_1\_1?ie=UTF8&qid=1522915642&sr=8-1&keywords=l'+étonnement+philosophique&dpID=519FTXD%2B9fL&preST=\_SY344\_BO1,204,203,200\_QL70\_&dpSrc=srch
@@ -48,6 +45,3 @@ Oscar Wilde
 
 **Directeurs à check**  
 Jodorowsky, Godard, Garrel, Spike Jonze, Fatih Akin, Hassen Ferhani, Guillaume Brac, Lynch, Aronofsky, Gaspard Noé
-
-**Jeux**
-makestorming de Nod A

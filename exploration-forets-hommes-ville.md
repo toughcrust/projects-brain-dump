@@ -1,9 +1,11 @@
 A financer ! potager hors sol: https://www.zeste.coop/fr/decouvrez-les-projets/detail/projet-cube?utm_source=Newsletter&utm_medium=Mail&utm_campaign=ZesteJuillet2018
 
+Formation en agro-foresterie qui a l'air très cool: https://www.fermedubec.com/
+
 Kiffs:
 - Coopération avec un écosystème fascinant (peut être lié aux protéodies => Sternheimer réparation d'écosystèmes)
 - Le bien-être profnd qu'on ressent en forêt
-- Les forêts pour contre-balancer l'effet de l'H sur la planète
+- Les forêts pour contre-balancer l'effet de l'H sur la planète (== "half earth")
 
 Idées random:
 - Création d'un réseau végétal entremêlé à la ville (quels conditions minimales pour le dev d'un réseau de com' souterrain sur toute une ville?). Adaptation des espèces aux besoins spécifiques en nourriture, protection au soleil, humidité

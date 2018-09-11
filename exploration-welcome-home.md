@@ -5,6 +5,11 @@ Contexte: je suis mon premier client !
 > Thought provoking wittiness
 > Open and honest recognition of **human nature dark aspects and incompleteness**
 
+**Jeux**
+makestorming de Nod A
+(rejoint idée de mélanger tirage tarot osho avec un mudra, etc. => générer des possibilités)
+
+
 I'd like to age in something like a badass transsexual grandpa eventually. You know, **no shit, low appetite,  
 big laugh, big mouth, looking after of the offspring**. Having been satisfied an all levels, I now take pleasure in nurturing lifes, Life, what may live ... I'll plant trees 
 
