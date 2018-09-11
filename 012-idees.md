@@ -45,3 +45,6 @@ Des jurés civils tirés au sort, ateliers constituants => les gens se transform
 
 **Tests d'interdictions**
 La pub, le gratuit
+
+**Dynamisation de l'eau**
+On en pense quoi ? Et celle de l'urine ?
