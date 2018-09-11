@@ -13,6 +13,7 @@ http://dergipark.ulakbim.gov.tr/kaygi/article/viewFile/5000192057/5000167520 =&g
 
 **Films**  
 life aquatic wes andersen
+war dogs
 
 **SF**  
 https://www.amazon.fr/Qui-peur-mort-Nnedi-Okorafor/product-reviews/2366298544/ref=dpx_acr_txt?showViewpoints=1

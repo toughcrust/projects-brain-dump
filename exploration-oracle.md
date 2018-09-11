@@ -17,6 +17,7 @@ Modern science and anarchism
 http://www.bibliotekacyfrowa.pl/Content/77403/Kropotkin_P_Modern_Science_and_Anarchism.pdf
 Wolfgang Pauli and the Fine-Structure Constant
 https://hal.archives-ouvertes.fr/hal-01304518/file/Wolfgang_Pauli_and_the_Fine-Structure_Constant%20ps.pdf
+Carl Gustav Jung, Quantum Physics and the Spiritual Mind: A Mystical Vision of the Twenty-First Centuryhttps://www.ncbi.nlm.nih.gov/pmc/articles/PMC4217602/
 
 Y aller à mon rythme, être attentif: est-ce que j’ai vraiment faim ou envie d’autre chose ? Si j’ai faim de quoi j’ai vraiment envie ? Regarder le photos de voyage: qu’est-ce qui m’a vraiment marqué, qu’est-ce qui est passé en un coup de vent et que j’ai laissé à digérer pour plus tard ? Des choses désagréables que j’ai mises de côté ptet aussi ?
 Sinon c’est dommage, ce qui n’est pas bien digéré vient obstruer :)
