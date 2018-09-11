@@ -68,6 +68,7 @@ On regarde son aura changer en fonction d'une eau dynamisée ou non.
 * Kiai (cri avec chi) Jean-Paul Duchêne / Vlady Stevanovitch. Checker la verion silencieuse !
 * https://upliftconnect.com/music-of-the-plants/
 * https://www.jmmeric.fr/index.php/appareils/l-helizeo
+* Before the spoken language (including this silent mental voice) there seems to be vibrations in the body. Allow and hear those silent sounds before they are projected (hence modified) to consciousness. The music you let penetrate your body dances with that inner music.
 
 **Géométrie "sacrée" (YUK!)**
 [https://www.google.fr/amp/s/timothytrespas.wordpress.com/2015/05/26/frequencies-sacred-harmonic-geometry-understanding-resonance-cymatics-and-the-chakras/amp/](https://www.google.fr/amp/s/timothytrespas.wordpress.com/2015/05/26/frequencies-sacred-harmonic-geometry-understanding-resonance-cymatics-and-the-chakras/amp/) (site pas fou mais intéressant !)

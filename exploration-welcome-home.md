@@ -1,5 +1,7 @@
 Contexte: je suis mon premier client !
 
+Les collectifs anti pubs qui detournent c'est quand meme achement bien ! Pochoirs, banksy tout ça ...
+
 **Inspiring oxymorons**
 > Inclusiveness that celebrates and fosters difference
 > Thought provoking wittiness
