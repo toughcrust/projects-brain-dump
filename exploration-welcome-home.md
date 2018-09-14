@@ -1,4 +1,4 @@
-Contexte: je suis mon premier client !
+Un truc où j'ai envie d'être bon: la facilitation facile
 
 Les collectifs anti pubs qui detournent c'est quand meme achement bien ! Pochoirs, banksy tout ça ...
 
