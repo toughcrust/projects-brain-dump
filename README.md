@@ -35,6 +35,7 @@ vous plaisantez Mr Feihman ?
 A Thousand Years of Nonlinear History  
 Understanding Comics: The Invisible Art \([https://www.amazon.com/Understanding-Comics-Invisible-Scott-McCloud/dp/006097625X](https://www.amazon.com/Understanding-Comics-Invisible-Scott-McCloud/dp/006097625X)\)  
 L'étonnement philosophique: https://www.amazon.fr/Létonnement-philosophique-Jeanne-Hersch/dp/2070327841/ref=sr\_1\_1?ie=UTF8&qid=1522915642&sr=8-1&keywords=l'+étonnement+philosophique&dpID=519FTXD%2B9fL&preST=\_SY344\_BO1,204,203,200\_QL70\_&dpSrc=srch
+https://www.amazon.com/Kundalini-Musings-JJ-Semple-ebook/dp/B07BT1FWGV
 
 **Romans**  
 Faust de Goethe  
