@@ -10,6 +10,7 @@ Kiffs:
 Idées random:
 - Création d'un réseau végétal entremêlé à la ville (quels conditions minimales pour le dev d'un réseau de com' souterrain sur toute une ville?). Adaptation des espèces aux besoins spécifiques en nourriture, protection au soleil, humidité
 - Quelle valeur dans le cadre d'une économie axée sur la productivité à tirer de la "jachère" forestière ? 
+- Le lierre qui s'insinue partout !
 - J'aimerais bien être berger en ville: un chien, un bâton, des animaux, etc.
 - Recréer des forêts complètement sauvages en France. Comment rendre le truc ultra sexy ? Safari, stages survie, détente ?
 
