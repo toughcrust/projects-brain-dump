@@ -28,6 +28,7 @@ https://www.youtube.com/watch?v=aHjpOzsQ9YI
 * How To Open Your 7 Chakras As Explained In a Children's \(ShowAvatar: The Last Airbender S02E19 - The Guru\) [https://www.youtube.com/watch?v=StrbppmsZJw](https://www.youtube.com/watch?v=StrbppmsZJw)
 Chakranarchie ? pour tourner toutes ces "libérations" / "montée de kundalini" dans un esprit qui me convienne mieux ? 
 Utiliser une musique ultra mystique comme https://www.youtube.com/watch?v=sD32dLN2D-g et mettre une voix goguenarde par dessus.
+**Idée !**: Quand on a une épiphanie d'un truc dont on se pensait débarrassé, s'enregistrer sur le moment! Se le rejouer plus tard.
 
 **\[HOT TOPIC\]** faire une XP pour voir ce que je pense de la dynamisation:
 https://www.youtube.com/watch?v=RG7XDt7axW8
