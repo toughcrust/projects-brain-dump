@@ -21,6 +21,7 @@ Enoncer à voix haute le code d'une protéine ? A mettre en lien avec recherche 
 http://www.genodics.net/ (voir rachi, réseau de chercheurs indépendants)
 idée: suggestions de mélodies en fonction de question sur l'humeur. Apprentissage sur le ressenti de chaque musique => création d'un son par guidage + intuition de ce qu'on a besoin => génération d'une protéodie très perso. Par contre la vraie musique reste bien plus puissante. Remix de morceaux existants pour incorporer les "bonnes" notes et les "bons" rythmes ?
 https://www.youtube.com/watch?v=aHjpOzsQ9YI
+https://www.youtube.com/watch?v=qyKf8OUCMmA (Ibrahim Maalouf - Red & Black Light)
 => essayer sur le récepteur à l'endorphine si ça me fait qque chose, écrire à l'adresse mail des "chercheurs indépendants" et sinon ça me gave c'est trop complexe.
 
 **\[HOT TOPIC\]** Faire une médiation guidée avec ma voix et ces sources là:
@@ -64,13 +65,14 @@ On regarde son aura changer en fonction d'une eau dynamisée ou non.
 * Les chants polyphoniques \(à essayer? [http://culturaviva.fr/index.php/cours-de-chant/](http://culturaviva.fr/index.php/cours-de-chant/)\)
 * Dans avec tambours: Taketina
 * Le rythme cardio-respiratoire peut se calquer sur celui d'une musique
-* Déplacer toute son agitation dans les yeux. Les relâcher =&gt; mouvement de type REM \(par la respiration aller chercher les tensions et les ramener sur le yeux\)
+* Déplacer toute son agitation dans les yeux. Les relâcher =&gt; mouvement de type REM \(par la respiration aller chercher les tensions et les ramener sur le yeux\). Lien entre EDMR pour traiter les stress post-traumatiques et les yeux agités de la transe ?
 * [https://thenextweb.com/insights/2018/01/22/i-trained-an-ai-to-copy-my-voice-and-scared-myself-silly/](https://thenextweb.com/insights/2018/01/22/i-trained-an-ai-to-copy-my-voice-and-scared-myself-silly/)
 * Kiai (cri avec chi) Jean-Paul Duchêne / Vlady Stevanovitch. Checker la verion silencieuse !
 * https://upliftconnect.com/music-of-the-plants/
 * https://www.jmmeric.fr/index.php/appareils/l-helizeo
 * Before the spoken language (including this silent mental voice) there seems to be vibrations in the body. Allow and hear those silent sounds before they are projected (hence modified) to consciousness. The music you let penetrate your body dances with that inner music.
-* Puissance du bâton dans le sentiment de force, la concentration (sceptre, baguette magique, shamanisme, druidisme, etc)
+* Puissance du bâton dans le sentiment de force, la concentration (sceptre, baguette magique, shamanisme, druidisme, etc). Différentes longueurs en fonction du chakra ? différentes couleurs ?
+* Je place le bol tibétain sur votre corps, je le fais chanter, j'entre en résonance avec lui et, guidée par mon clair-ressenti et mes capacités intuitives, j'arrive à sentir et voir les points de votre corps et les blocages qui nécessitent de recevoir les vibrations correctes afin d'être réharmonisé
 
 **Géométrie "sacrée" (YUK!)**
 [https://www.google.fr/amp/s/timothytrespas.wordpress.com/2015/05/26/frequencies-sacred-harmonic-geometry-understanding-resonance-cymatics-and-the-chakras/amp/](https://www.google.fr/amp/s/timothytrespas.wordpress.com/2015/05/26/frequencies-sacred-harmonic-geometry-understanding-resonance-cymatics-and-the-chakras/amp/) (site pas fou mais intéressant !)
@@ -96,7 +98,7 @@ Textual Healing & DNA Activation By Sol Luckman
 
 * Ma veste de couleur orange qui me fait sentir plein d'énergie  
 * Le morceau de bambou que je tenais comme un sceptre / une épée pour méditer  
-* Himmelis  
+* Himmelis. Des himmelis géants pour se mettre à l'intérieur ?
 * Regarder dans bouquin sur la Wicca les runes !
 
 **Expériences **:

@@ -15,7 +15,8 @@ makestorming de Nod A
 I'd like to age in something like a badass transsexual grandpa eventually. You know, **no shit, low appetite,  
 big laugh, big mouth, looking after of the offspring**. Having been satisfied an all levels, I now take pleasure in nurturing lifes, Life, what may live ... I'll plant trees 
 
-**Holy shift !** aka la boîte que je créérai pas
+**Holi shift !** aka la boîte que je créérai pas
+Debusquer les dissonances collectives.
 Do not go gentle into that bullshit
 L'outil convivitial d'Illich!
 Sinon pour le process de design: creuser à fond les questions (5 why's tout ça). Rien ne sert de se précipiter sur les solutions qui surgissent, pleins d'autres de plus en plus pertinentes vont venir à mesure que les questions gagnent en intérêt.
