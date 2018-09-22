@@ -16,6 +16,7 @@ I'd like to age in something like a badass transsexual grandpa eventually. You k
 big laugh, big mouth, looking after of the offspring**. Having been satisfied an all levels, I now take pleasure in nurturing lifes, Life, what may live ... I'll plant trees 
 
 **Holi shift !** aka la boîte que je créérai pas
+en jaune rose orange rouge: Transgressons inclusif
 Debusquer les dissonances collectives.
 Do not go gentle into that bullshit
 L'outil convivitial d'Illich!
