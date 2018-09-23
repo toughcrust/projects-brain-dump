@@ -73,6 +73,7 @@ On regarde son aura changer en fonction d'une eau dynamisée ou non.
 * Before the spoken language (including this silent mental voice) there seems to be vibrations in the body. Allow and hear those silent sounds before they are projected (hence modified) to consciousness. The music you let penetrate your body dances with that inner music.
 * Puissance du bâton dans le sentiment de force, la concentration (sceptre, baguette magique, shamanisme, druidisme, etc). Différentes longueurs en fonction du chakra ? différentes couleurs ?
 * Je place le bol tibétain sur votre corps, je le fais chanter, j'entre en résonance avec lui et, guidée par mon clair-ressenti et mes capacités intuitives, j'arrive à sentir et voir les points de votre corps et les blocages qui nécessitent de recevoir les vibrations correctes afin d'être réharmonisé
+* https://www.consciouslifestylemag.com/chakra-sounds-vibrational-medicine/ les gestes associés aux chakras en remplaçant les sons par un bouillonement intérieur ça fait une putan de montée d'énergie
 
 **Géométrie "sacrée" (YUK!)**
 [https://www.google.fr/amp/s/timothytrespas.wordpress.com/2015/05/26/frequencies-sacred-harmonic-geometry-understanding-resonance-cymatics-and-the-chakras/amp/](https://www.google.fr/amp/s/timothytrespas.wordpress.com/2015/05/26/frequencies-sacred-harmonic-geometry-understanding-resonance-cymatics-and-the-chakras/amp/) (site pas fou mais intéressant !)
