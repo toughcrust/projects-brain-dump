@@ -1,20 +1,21 @@
 CR: se déparasiter par l'art thérapie 
 
-
+![](/assets/tarot.jpeg)
 
 Dessin de ce qui me ronge façon art thérapie.
 Méditation dessus avec troisième oeil (hallucinations sur les formes) et mudra protecteur.
 Puis combat avec sourire et doigts d'honneur.
 Puis tirage cartes:
-Pourquoi ce parasite 
-Qu'est ce qu'il a à me dire
-Comment m'en débarrasser ? 
+Pourquoi ce parasite: fighting => je me détruis à combattre
+Qu'est ce qu'il a à me dire: breakthrough => je suis dans la nuit noire de l'âme, "enough is enough", besoin de libérer mon plexus
+Comment m'en débarrasser ?  Projections: cesser de me voir et de voir les autres à travers la projection, voir avec l'esprit directement.
 
-Manque écriture ? 
+Manque écriture ? Auto-médiation sur ce qui résulte ? => **TODO: faire un toolkit introspection.**
 
 Faire des crs comme ça dans un article medium. Ajouter: regressions, reves lucides, auto meditations.
 
 **TODO: faire un toolkit de méditation: avec bâton, mudra, musique, etc.**
+
 
 La trame en alchimie !
 
