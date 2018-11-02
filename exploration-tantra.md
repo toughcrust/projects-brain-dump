@@ -1,4 +1,20 @@
-TODO: faire un toolkit de méditation: avec bâton, mudra, musique, etc.
+CR: se déparasiter par l'art thérapie 
+
+
+
+Dessin de ce qui me ronge façon art thérapie.
+Méditation dessus avec troisième oeil (hallucinations sur les formes) et mudra protecteur.
+Puis combat avec sourire et doigts d'honneur.
+Puis tirage cartes:
+Pourquoi ce parasite 
+Qu'est ce qu'il a à me dire
+Comment m'en débarrasser ? 
+
+Manque écriture ? 
+
+Faire des crs comme ça dans un article medium. Ajouter: regressions, reves lucides, auto meditations.
+
+**TODO: faire un toolkit de méditation: avec bâton, mudra, musique, etc.**
 
 La trame en alchimie !
 
