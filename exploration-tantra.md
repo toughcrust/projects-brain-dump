@@ -1,3 +1,7 @@
+TODO: faire un toolkit de méditation: avec bâton, mudra, musique, etc.
+
+La trame en alchimie !
+
 XP cool faite:
 - phase 1: chanter "intérieurement" les sons associées aux chakras pour faire monter l'énergie du haut vers le base. Se connecter à la terre et au ciel et créer un potentiel
 - phase 2: 1à respirations très conscientes, très lente. Tentative de détente maximale avant "impact"
@@ -43,6 +47,7 @@ On regarde son aura changer en fonction d'une eau dynamisée ou non.
 
 * Cocon d'isolation  
 * Lucid dreaming
+* Avec une couverture de survie
 
 **Inspirations / idées**:
 
