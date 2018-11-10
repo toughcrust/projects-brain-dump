@@ -1,5 +1,9 @@
 Un truc où j'ai envie d'être bon: la facilitation facile
 
+Le collectif holi-shift est heureux de vous présenter ses déclinaisons
+- dieubidigezh => Labo de hack de conscience bio/local/végane sans caca de taureau
+- blanksy => parle avec la pub
+
 Les collectifs anti pubs qui detournent c'est quand meme achement bien ! Pochoirs, banksy tout ça ...
 
 **Inspiring oxymorons**
