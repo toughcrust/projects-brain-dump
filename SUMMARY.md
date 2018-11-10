@@ -4,7 +4,6 @@
 * [\[Explo\] Man feat. wild](exploration-forets-hommes-ville.md)
 * [\[Explo\] Epiphanies hunting](exploration-oracle.md)
 * [\[Explo\] Décrassage et extase](exploration-tantra.md)
-* [\[Explo\]  Terr. space station](exploration-foo-food.md)
 * [J'en rêve !](012-idees.md)
 * [Hey c'était cool](003-was-cool.md)
 * [Trucs astros](007-esoterique.md)

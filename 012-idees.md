@@ -1,4 +1,8 @@
- **Cuisine / bar / restau de quartier**
+**Un labo par lequel transite tous les déchets**
+Un grand truc expérimental dans Paris par lequel transite un peu toutes les sortes de déchets:
+Poubelles, meubles, électroniques, urines et selles. Mettre des gens qui rivalisent d'ingéniosité pour réutiliser tout ça.
+
+**Cuisine / bar / restau de quartier**
 On peut amener sa propre pitence, ses ingrédients ou laisser le chef ou d'autres cuisiner !
 Idée: on y vient comme on va dans son salon, pas besoin de dépenser une blinde. On partage l'équipement de cuisine.
 
