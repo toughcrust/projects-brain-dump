@@ -1,7 +1,6 @@
 # Summary
 
 * [Hmm ça a l'air cool](README.md)
-* [\[Explo\] Man feat. wild](exploration-forets-hommes-ville.md)
 * [\[Explo\] Epiphanies hunting](exploration-oracle.md)
 * [\[Explo\] Décrassage et extase](exploration-tantra.md)
 * [J'en rêve !](012-idees.md)
