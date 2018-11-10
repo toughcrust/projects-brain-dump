@@ -16,7 +16,6 @@ proposer des solutions à un groupe d'habitations pour une gestion raisonnée du
 Des champis dans les caves ? Du terreau pour de la végétation ?
 
 
-Ajouter ici le zero waste ? Entre autres sur la logistique ? 
 
 Grow psychedelic on own faeces
 
