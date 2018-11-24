@@ -16,6 +16,7 @@ Sinon organisation de sorties de fast packing !
 
 **En cabane**
 Asso de construction de cabane / soiree dans les bois.
+Isolement de type vision initiatique dans les tribus d'amazonie 
 
 **Tiny house!**
 Un village !? 

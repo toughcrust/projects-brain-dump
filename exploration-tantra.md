@@ -1,24 +1,3 @@
-CR: se déparasiter par l'art thérapie 
-
-![](/assets/tarot.jpeg)
-
-Dessin de ce qui me ronge façon art thérapie.
-Méditation dessus avec troisième oeil (hallucinations sur les formes) et mudra protecteur.
-Puis combat avec sourire et doigts d'honneur.
-Puis tirage cartes:
-Pourquoi ce parasite: fighting => je me détruis à combattre
-Qu'est ce qu'il a à me dire: breakthrough => je suis dans la nuit noire de l'âme, "enough is enough", besoin de libérer mon plexus
-Comment m'en débarrasser ?  Projections: cesser de me voir et de voir les autres à travers la projection, voir avec l'esprit directement.
-
-Manque écriture ? Auto-médiation sur ce qui résulte ? => **TODO: faire un toolkit introspection.**
-
-Faire des crs comme ça dans un article medium. Ajouter: regressions, reves lucides, auto meditations.
-
-**TODO: faire un toolkit de méditation: avec bâton, mudra, musique, etc.**
-
-
-La trame en alchimie !
-
 XP cool faite:
 - phase 1: chanter "intérieurement" les sons associées aux chakras pour faire monter l'énergie du haut vers le base. Se connecter à la terre et au ciel et créer un potentiel
 - phase 2: 1à respirations très conscientes, très lente. Tentative de détente maximale avant "impact"
@@ -110,17 +89,9 @@ Textual Healing & DNA Activation By Sol Luckman
 - "Leigh and I propose that we rename ‘junk’ DNApotential DNA and understand it as the our ‘ener-genetic’ interface with the bioenergy blueprint."
 - "Potentiation employs particular combinations of vowel-based sounds paired with linguistic thought (light) codes that are transmitted to the recipient’s potential DNA—initiating a domino effect of repatterning that resets the bioenergy blueprint to harmonic functioning."
 
-**Sons qui font des trucs en moi**  
-[https://www.youtube.com/watch?v=AjhYEKmUtxM](https://www.youtube.com/watch?v=AjhYEKmUtxM) =&gt; Boys Noize \(full concert\) - Live @ Festival Sónar 2016  
-[https://www.youtube.com/watch?v=FtK9h--4aaM](https://www.youtube.com/watch?v=FtK9h--4aaM) =&gt; A Filetta - U lamentu di Maria  
-[https://www.youtube.com/watch?v=wmN6wZ9rVPY](https://www.youtube.com/watch?v=wmN6wZ9rVPY) =&gt; Danheim - Herja \(Full Album 2018\) - Viking War Songs  
-[https://laboratoriumpiesni.bandcamp.com](https://laboratoriumpiesni.bandcamp.com) =&gt; Laboratorium Pesni  
-[https://www.youtube.com/watch?v=Ei88J4lERbk](https://www.youtube.com/watch?v=Ei88J4lERbk) =&gt; Hildegard von Bingen - Canticles Of Ecstasy \(marche bien avec des tambours chamanniques type [https://www.youtube.com/watch?v=BkzA\_u9smXU&t=5271s](https://www.youtube.com/watch?v=BkzA_u9smXU&t=5271s)\)
 
 **Symbolique à explorer**
 
-* Ma veste de couleur orange qui me fait sentir plein d'énergie  
-* Le morceau de bambou que je tenais comme un sceptre / une épée pour méditer  
 * Himmelis. Des himmelis géants pour se mettre à l'intérieur ?
 * Regarder dans bouquin sur la Wicca les runes !
 
@@ -136,6 +107,5 @@ L'**auto-méditation guidée** que je me suis faite. Ce qui était bien :
 * "tu vas avoir des frissons / même gémir"
 * Décollage entre corps NRJ et corps physique
 * Bouger les extrémités jusqu'à épuisement
-
-La **"régression"** ou "hypnose quantique" =&gt; seul truc notablement bien, j'ai pleuré de retrouver en moi une chaleur d'amour. Comme si je retrouvais maman en moi.
+.
 
