@@ -6,8 +6,6 @@ Poubelles, meubles, électroniques, urines et selles. Mettre des gens qui rivali
 On peut amener sa propre pitence, ses ingrédients ou laisser le chef ou d'autres cuisiner !
 Idée: on y vient comme on va dans son salon, pas besoin de dépenser une blinde. On partage l'équipement de cuisine.
 
-**Algrotourisme**
-En achetant des produits , on cumule des points pour aller visiter des exploitations!
 
 **thrill & chill** Club sportif foutraque et sauvage 
 Bains banya / sauna, eau glacée, combat libre à mains nues, sorties courses pieds nus (et de nuit !) et baignade dans la Seine => bonnes souffrances. Bonne tablées, chant polyphoniques, etc. Organisation de CO/trails créatifs: chacun sa distance, faire un D+ en un temps donné comme on veut, trouver des bières différentes et prendre un selfie.
