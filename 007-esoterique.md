@@ -1,4 +1,3 @@
-Pas encore lu: https://www.astro.com/astrologie/in_lifeview_f.htm
 Moon in aquarius: https://www.starslikeyou.com.au/your-astrology-profile/moon-in-aquarius/ (find common ground)
 Moon 7th house: https://theastrocodex.com/natal-moon-in-the-7th-house/
 (need for nurturing)
